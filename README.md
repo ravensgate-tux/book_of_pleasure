@@ -13,6 +13,7 @@
 
 <div align="center">
  <img src="spare_photo_relaxed.png" width="400">
+*ZOSの手、KIAのまなざし。スペアは肉体と意識を一つの芸術行為に還元した。*
 </div>
 
 ---
