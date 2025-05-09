@@ -11,6 +11,13 @@
 
 ---
 
+<div align="center">
+ <img src="spare_photo_relaxed.png" width="400">
+</div>
+
+---
+
+
 ## 🗂 章構成
  
 - [01 Definitions](01_definitions.md)
