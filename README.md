@@ -1,4 +1,4 @@
-# 快楽の書──ZOS/KIAと魔術の原点
+# 快楽の書──ZOS/KIAと魔術の原点（翻訳＋注釈ZINE）
 
 本Zineは、オースティン・オスマン・スペア（Austin Osman Spare, 1886–1956）の代表作『The Book of Pleasure（Self-Love）』の全文翻訳および注釈を収録した試みである。本Zineでは、以下の方針に基づいて編集している：
 
