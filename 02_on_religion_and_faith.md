@@ -14,27 +14,13 @@
 
 知識をたくさん持っている人たちほど、「信じるとは何か」「自然法則や常識を超えたものをどう信じるのか」をはっきりと説明することができない。「信じます」と口に出すことではないことは確かだ。その芸（アート）は、とっくに失われてしまった。そういう人たちは、何かを語ろうと口を開いた瞬間に、ますます混乱し、焦り、力を失っていく。自分自身の混乱を他人に広めてしまわないと落ち着かないほどに、話せば話すほど不幸になる。彼らが「説得力」を得ようとするとき、必ず「ドグマ」や「態度（マナー）」を持ち出して、あらゆる可能性を閉ざしてしまう。そして、皮肉なことに──その「知識の光」によって、彼らはかえって行動力を失ってしまうのだ。私たちは、彼らが言葉を費やせば費やすほど、徐々に朽ちていく様子を見てきたではないか。まことに、人は信仰でも報酬でも本当に信じることはできない。そして知識を語るにも、それがまったく新しい法則から生まれていない限り、真に説明することなどできはしない。……私たちはすでに「すべて」であるのに、なぜ「そうではない」と想像する必要があるのだろう？
 
-**Be ye mystic.**
+**神秘化になれ。**
 
-Others believe in prayer . . . . have not all yet learnt, that to ask it to be denied? Let it be the root of
-your Gospel. Oh, ye who are living other peoples lives! Unless desire is subconscious, it is not
-fulfilled, no, not in this life. Then verily sleep is better than prayer. Quiescence is hidden desire, a
-form of "not asking"; by it the female obtains much from man. Utilize prayer (if you must pray) as a
-means of exhaustion, and by that you will obtain your desire.
-Some do much to show the similarity of different religions; certainly by it I prove the possibility of a
-fundamental illusion, but that they never realise-or this Ukase they are the mockery, for how much
-they regret! They suffer more conflict than the unenlightened. With what they can identify their own
-delusion of fear they call truth. They never see this similarity and the quintessence of religions, their
-own poverty of imagination and religion's palliation. Better is it to show the essential difference of
-religions. It is as well to know that various means; is not their object to deceive and govern? Surely
-then, for the attainment of the transcendental, God and religion should have no place.
 
-Some praise truth so-called, but give it many containers; forgetting its dependence they prove its
-relationship and paradox, the song of experience and illusion. Paradox is not "truth", but the truth
-that anything can be true for a time. What supersedes paradox and its implicit ("not necessary"), I will
-make the foundation of my teaching. Let us determine the deliberative, "the truth" cannot be divided.
-Self-love only cannot be denied and is Self-love as such when paradoxical, under any condition,
-hence it alone is truth, without accessories complete.
+
+祈りを信じる者たちもいる。……だが、まだ学んでいないのだろうか？「願うこと」は、その願いが拒まれることを前提にしているということを。それこそが、お前たちの“福音書”の出発点であるべきだ。おお、他人の人生を生きている者たちよ──！欲望が無意識にまで沈んでいなければ、それは現実には実現しない。この人生においては特にそうだ。だからこそ、祈るくらいなら眠った方がましだ。沈黙や静けさ（quiescence）こそが、隠された欲望のかたちであり、それは「求めない」という姿勢をとることで、女性が男から多くのものを得るときに自然に使っているやり方でもある。どうしても祈りたいなら、祈りを“消耗”の手段として使え。欲望を出しきったところにこそ、それは手に入る。
+
+異なる宗教同士の「類似点」を熱心に示そうとする人々がいるだがそれはむしろ、幻想の共通構造が存在することの証明になってしまっている。彼ら自身はその事実にまったく気づかず、むしろそれを「真理」と呼んでしまう。だから彼らは、啓蒙されていない者よりも、もっと深い葛藤に苦しむ。自分の恐れに根ざした妄信を「真理」だと思い込んでしまっているのだ。彼らは、「宗教に共通するもの」と「自分たちの想像力の貧しさ」、そして宗教がただの慰めでしかないということに気づかない。だったらむしろ、宗教ごとの本質的な違いを示す方がまだ誠実だ。宗教には様々な手段がある──だがその目的が、「人々を欺き、支配すること」にあるのではないかと考えるのは自然だ。だとすれば、超越的なものを目指す者にとって、神や宗教は無用なものであるはずだ。
 
 Others praise ceremonial Magic, and are supposed to suffer much Ecstasy! Our asylums are crowded,
 the stage is over-run! Is it by symbolizing we become the symbolized? Were I to crown myself King,
