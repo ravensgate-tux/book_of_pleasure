@@ -33,7 +33,7 @@
 
 ## 🗂 章構成
  
-- [01 Definitions](01_definitions.md)
+- [01 定義（Definitions）](01_definitions.md)
 
 - [02 Different Religions and Doctrines as Means to Pleasure, Freedom and Power](02_on_religion_and_faith.md)
 
