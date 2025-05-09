@@ -12,7 +12,7 @@
 <details>
 <summary>🇬🇧 原文を表示（別ファイルで開く）</summary>
 
-🔗 [原文を読む 01_intro_en.md](01_intro_en.md)
+🔗 [原文を読む 00_intro_en.md](00_intro_en.md)
 
 </details>
 
