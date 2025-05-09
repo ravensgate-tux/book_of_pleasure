@@ -14,17 +14,11 @@
 ---
 
 #
-🇯🇵 Definitions
-
-The words God, religions, faith, morals, woman, etc. (they being forms of belief), are used as
-expressing different "means" as controlling and expressing desire: an idea of unity by fear in some
-form or another which must spell bondage-the imagined limits; extended by science which adds a
-dearly paid inch to our height: no more.
+🇯🇵 定義
 
 「神」「宗教」「信仰」「道徳」「女性」など──これらはすべて、欲望を制御し表現するための「手段（means）」として現れる信念の形式にすぎない。
 それらは、何らかの形で「恐れ」による統一を目指す概念であり、その本質は束縛である。
-科学はこうした「想像上の限界」を少しだけ押し広げるが、得られるのは高くなる“1インチ”にすぎず、それ以上ではない。
-
+科学はこうした「想像上の限界」を少しだけ押し広げるが、得られるのはせいぜい1インチ程の高さにすぎず、それ以上ではない。
 
 **Kia:** The absolute freedom which being free is mighty enough to be "reality" and free at any time:
 therefore is not potential or manifest (except as it's instant possibility) by ideas of freedom or
