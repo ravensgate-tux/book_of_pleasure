@@ -21,7 +21,7 @@
 - [05 死の姿勢（Death Posture）](05_death_posture.md)
 - [06 神性についての独白（Soliloquy on Godhead）](06_soliloquy_on_godhead.md)
 - [07 二元性とエクスタシー](07_on_duality_and_ecstasy.md)
-- [08 結語](08_closing_remarks.md)
+- [08 結論](08_closing_remarks.md)
 
 ---
 
