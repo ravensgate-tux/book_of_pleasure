@@ -1,6 +1,6 @@
-# 快楽の書──Zos/Kiaと魔術の原点（翻訳＋注釈Zine）
+# オースティン・オスマン・スペア『快楽の書』の翻訳＋注釈Zine──Zos/Kiaと魔術の原点
 
-本Zineは、オースティン・オスマン・スペア（Austin Osman Spare, 1886–1956）の代表作『The Book of Pleasure（Self-Love）』の全文翻訳および注釈を収録した試みである。本Zineでは、以下の方針に基づいて編集している。
+本Zineは、オースティン・オスマン・スペア（Austin Osman Spare, 1886–1956）の代表作『The Book of Pleasure（Self-Love）』の全文翻訳および注釈を収録する試みである。本Zineでは、以下の方針に基づいて編集している。
 
 - Spare本人の原文に忠実な構成（注釈・翻訳・原文の三層構造）
 - ZOS＝手、KIA＝目、という象徴をもとに「身体と意識の魔術」を探る
