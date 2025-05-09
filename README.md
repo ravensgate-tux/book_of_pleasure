@@ -59,22 +59,9 @@ ZOSは「手」＝描く身体として、欲望を象徴へと具現化する�
 
 ---
 
-## 著作権および利用に関する注意
+## 著作権および利用に関して
 
-本Zineに収録された翻訳文および注釈は、Austin Osman Spareの著作『The Book of Pleasure（Self-Love）』の原文（パブリックドメインまたはCCライセンス下の版）をもとに、日本語圏における理解促進を目的として作成された。翻訳および注釈部分の著作権は、翻訳者・編者に帰属します。ただし、本Zine全体は以下のライセンス条件に従って公開される。
-
-**ライセンス：Creative Commons 表示-非営利 4.0 国際（CC BY-NC 4.0）**  
-https://creativecommons.org/licenses/by-nc/4.0/deed.ja
-
-このライセンスのもと、本Zineの内容は：
-
-- 非営利目的に限り自由に複製・共有・再配布が可能です  
-- 内容を改変する場合も、出典を明示すれば許可されます  
-- 商用利用は禁止されています  
-- 原著者および翻訳者へのクレジット（名前・URLなど）を明記してください
-
-原文の出典（英語）：  
-[The Book of Pleasure (Self-Love) by Austin Osman Spare – Internet Archive / Public Domain Source]
+本Zineに収録された翻訳文および注釈は、Austin Osman Spareの著作『The Book of Pleasure（Self-Love）』の原文（パブリックドメインまたはCCライセンス下の版）をもとに、日本語圏における理解促進を目的として作成された。翻訳および注釈部分の著作権は、翻訳者・編者に帰属する。ただし、本Zine全体は以下のライセンス条件に従って公開される。
 
 ---
 
