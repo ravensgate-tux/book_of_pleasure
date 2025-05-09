@@ -22,21 +22,7 @@
 
 異なる宗教同士の「類似点」を熱心に示そうとする人々がいるだがそれはむしろ、幻想の共通構造が存在することの証明になってしまっている。彼ら自身はその事実にまったく気づかず、むしろそれを「真理」と呼んでしまう。だから彼らは、啓蒙されていない者よりも、もっと深い葛藤に苦しむ。自分の恐れに根ざした妄信を「真理」だと思い込んでしまっているのだ。彼らは、「宗教に共通するもの」と「自分たちの想像力の貧しさ」、そして宗教がただの慰めでしかないということに気づかない。だったらむしろ、宗教ごとの本質的な違いを示す方がまだ誠実だ。宗教には様々な手段がある──だがその目的が、「人々を欺き、支配すること」にあるのではないかと考えるのは自然だ。だとすれば、超越的なものを目指す者にとって、神や宗教は無用なものであるはずだ。
 
-Others praise ceremonial Magic, and are supposed to suffer much Ecstasy! Our asylums are crowded,
-the stage is over-run! Is it by symbolizing we become the symbolized? Were I to crown myself King,
-should I be King? Rather should I be an object of disgust or pity. These Magicians, whose insincerity
-is their safety, are but the unemployed dandies of the Brothels. Magic is but one's natural ability to
-attract without asking; ceremony what is unaffected, its doctrine the negation of theirs. I know them
-well and their creed of learning that teaches the fear of their own light. Vampires, they are as the very
-lice in attraction. Their practices prove their incapacity, they have no magic to intensify the normal,
-the joy of a child or healthy person, none to evoke their pleasure or wisdom from themselves. Their
-methods depending on a morass of the imagination and a chaos of conditions, their knowledge
-obtained with less decency than the hyena his food, I say they are less free and do not obtain the
-satisfaction of the meanest among animals. Self condemned in their disgusting fatness, their emptiness
-of power, without even the magic of personal charm or beauty, they are offensive in their bad taste
-and mongering for advertisement. The freedom of energy is not obtained by its bondage, great power
-not by disintegration. Is it not because our energy (or mind stuff) is already over bound and divided,
-that we are not capable, let alone magical?
+儀式魔術を称賛する者たちもいる。そして彼らは「大いなるエクスタシーを得ている」らしい──が、我々の精神病院はすでに満員で、舞台の上も同じような連中で溢れている！象徴を使えば、本当に象徴そのものになれるのか？私が自分に王冠をかぶせたとして、私は「王」になれるだろうか？いや、それはむしろ滑稽か、あるいは憐れみの対象になるだけだ。こうした「魔術師」たちの多くは、偽りこそが唯一の安全装置であるような存在で、売春宿に入り浸る気取った無職の紳士と変わらない。魔術とは、本来「求めずして引き寄せる自然な力」のことだ。儀式とは、何の演出も要らない状態のことだ。そして私の魔術の教義は、彼らの教義の否定に他ならない。私は彼らをよく知っている──「学ぶことは、自分自身の光を恐れること」だと信じている者たちを。彼らはまるで、他人の魅力に寄生する「吸血鬼」だ。魅力という一点においても、彼らはシラミ同然だ。彼らの実践は、無能さの証明でしかない。子どもや健全な人が自然に持つ喜びを、自ら高める魔術すら持たず、自分の内側から快楽や叡智を引き出す力もない。想像力のぬかるみに依存し、条件だらけの混沌に溺れ、その知識はハイエナが餌を漁るよりも下品に得られたものだ。私は断言する──彼らは最も卑しい動物よりも自由ではなく、満足も得られていない。力も美しさも欠け、個人の魅力すらなく、醜悪に太り、力なき空虚を抱えた彼らは、味覚の悪さと目立ちたがり根性によって、自らを嫌悪すべき存在にしている。エネルギーの自由は、束縛によっては得られない。偉大な力は、分裂や破壊では得られない。そもそも、私たちの精神（またはエネルギー）がすでに縛られ、分断されすぎているからこそ、私たちは力を持てず──まして魔術など起こせないのだ。
 
 Some believe any and every thing is symbolic, and can be transcribed, and explain the occult, but of
 what they do not know. (Great spiritual truths?) So argument a metaphor, cautiously confusing the
