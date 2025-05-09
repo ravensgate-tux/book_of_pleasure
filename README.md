@@ -27,9 +27,7 @@
 
 ## 著作権および利用に関する注意
 
-本Zineに収録された翻訳文および注釈は、Austin Osman Spareの著作『The Book of Pleasure（Self-Love）』の原文（パブリックドメインまたはCCライセンス下の版）をもとに、日本語圏における理解促進を目的として作成されたものです。
-
-翻訳および注釈部分の著作権は、翻訳者・編者に帰属します。ただし、本Zine全体は以下のライセンス条件に従って公開されます：
+本Zineに収録された翻訳文および注釈は、Austin Osman Spareの著作『The Book of Pleasure（Self-Love）』の原文（パブリックドメインまたはCCライセンス下の版）をもとに、日本語圏における理解促進を目的として作成された。翻訳および注釈部分の著作権は、翻訳者・編者に帰属します。ただし、本Zine全体は以下のライセンス条件に従って公開される。
 
 **ライセンス：Creative Commons 表示-非営利 4.0 国際（CC BY-NC 4.0）**  
 https://creativecommons.org/licenses/by-nc/4.0/deed.ja
