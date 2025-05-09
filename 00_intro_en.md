@@ -1,3 +1,9 @@
-# 序文
+#
+🇬🇧 INTRODUCTION
 
-このZineはAustin Osman Spareの『The Book of Pleasure』を翻訳・注釈したものである。
+
+
+---
+
+© 2025 知られざる呪術師（Le Sorcier Inconnu）
+本ドキュメントは Creative Commons BY-SA 4.0 に基づき公開されています。
