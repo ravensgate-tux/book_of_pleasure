@@ -27,9 +27,9 @@
 
 ## 🗂 章構成
  
-- [01 定義（Definitions）](01_definitions.md)
+- [01 定義](01_definitions.md)
 
-- [02 Different Religions and Doctrines as Means to Pleasure, Freedom and Power](02_on_religion_and_faith.md)
+- [02 宗教は、欲望の取り扱い説明書なのか？](02_on_religion_and_faith.md)
 
 - [03 The Consumer of Religion](03_self_love_and_sigils.md)
 
