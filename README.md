@@ -12,8 +12,6 @@
 ---
 
 ## 🗂 章構成
-
-- [00 序文](00_intro.md)
  
 - [01 Definitions](01_definitions.md)
 
