@@ -6,7 +6,6 @@ seen self at any time. We are what we believe and what it implies by a process o
 conception; creation is caused by this bondage to formula.
 Actions are the expressions of ideas bound up in the belief; they being inherent are obscure, their
 operation indirect, easily they deceive introspection. Fruits of action are two-fold, Heaven or Hell,
-
 their Unity or Nothingness (Purgatory or Indifference). In Heaven there is desire for Women. Hell the
 desire intense. Purgatory is expectation delayed. Indifference but disappointment till recovery. Then
 verily they are one and the same. The wise pleasure seeker, having realised they are "different degrees
