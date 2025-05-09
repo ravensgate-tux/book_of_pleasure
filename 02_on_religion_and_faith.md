@@ -26,19 +26,8 @@
 
 何でもかんでも「象徴」だと信じている人たちがいる。そしてそれを使ってオカルトを“説明”しようとする。だが、彼ら自身が何を語っているのか、実のところ理解してはいない。（「偉大な霊的真理」でも扱っているつもりなのか？）こうして議論はたちまち「比喩」に化け、明快だったはずのものが、注意深く、だが混乱したまま曖昧にされていく。その結果、かえって「隠れた徳」なんてものが出てきたように見える。この不要な「肥大化した語り」──たとえそれが見かけは立派でも、……不快ではないか？（象のように巨大なものは確かに力強いが、醜いブタのほうが、少なくとも私たちの「美意識」にとってはまだマシだ。）もし人が、召使いの前で英雄でないなら、好奇心旺盛な他人の前では、ますます「神秘家」になど見えはしない。類似性は、真似を生むだけだ。自分の主張がいかに物議を醸そうともまず正直さを見せよ。そのうえで意味に飾りをつけるべきだ。真実というものは、いくらシンプルであっても、わざとらしい混乱や誤魔化しを必要とはしない。その純粋な象徴性は、それだけで神秘的なデザインとして無限の可能性を含んでいる。常識の立場に立て。そこには、「嘘をつけない真実」が必ず含まれている。議論など、これまで一度たりとも「真実に勝った」ためしはない。完璧な比率（＝真のもの）は、どこもいじる必要がない。逆に、役に立たないものは、いずれ自然に朽ちる。
 
-They reject all the modern symbolism 1 and reach an absurd limit very early. Not counting on change
-2 and (at times) the arbitrary nature of symbolism or the chance of a preserved folly, by their
-adoption of the traditional without a Science, as having reading to the present, their symbolism is
-chaotic and meaningless. Not knowing the early rendering, they succeed in projecting their own
-meagreness by this confusion, as explaining the ancient symbols. Children are more wise. This
-conglomeration of antiquity decayed, collected with the disease of greed-is surely the chance for
-charity? Forgetting trumpery ideas, learn the best tradition by seeing you own functions and the
-modern unbiassed. Some praise the belief in a moral doctrinal code, which they naturally and
-continually transgress, and never obtain their purpose. Given the right nature, they succeed fairly in
-their own governing, and are those most healthy, sane and self-pleased. It may be called the negation
-of my doctrine, they obtain tolerable satisfaction, whereas mine is complete. Let him tarry here, who
-is not strong for the great work. In freedom he might be lost. So fledge your wings fearlessly, ye
-humble ones!
+彼らは、現代の象徴体系をすべて否定し、あっという間に“バカげた限界”にたどり着いてしまう。彼らは変化の可能性や、象徴の「恣意性」や「誤解されたまま保存された愚かさ」に気づいていない。ただ“伝統的”なものを、科学もないまま取り入れ、「現代に通じている」と思い込んで使っているだけだ。その結果、彼らの象徴体系は混乱していて、何の意味もない。初期の象徴がどう解釈されていたかも知らないから、結局は自分の“貧しさ”を、その混乱の中に投影してしまっている。それを「古代の象徴の説明」として押しつけているのだ。……子どもの方が、よっぽど賢い。こうして古代の遺物を寄せ集めたものは、欲の病に侵された、崩れかけた過去の残骸であり──むしろそれは、慈悲を与えるべき対象ではないか？ガラクタのような思想を忘れよ。そして、自分自身の身体の機能を見ることで、偏りのない“現代”の中にこそ、最良の伝統を学ぶ道があると気づけ。道徳的な教義に信仰を置く者たちもいる。だが彼らは、そんな教義を“当然のように”破り続けており、けっして自分の目的を達成することはない。正しい本性を備えた人は、特別な教義がなくても、自然と自分をうまく統御できている。そういう人こそが、最も健康で、正気で、満ち足りている。彼らのやり方は、私の教義とは逆であるかもしれない。だが彼らは“まずまずの満足”を得ている。私の教義は、そこからさらに“完全な満足”を目指すのだ。「大いなる作業」に耐えられない者は、いまはここにとどまれ。自由の中では、迷ってしまうかもしれないから。だが、飛び立とうとする者よ──恐れずに、翼を広げよ！ 謙虚な者たちよ！
+
 
 - 1: All means of locomotion, machinery, governments, institutions, and everything
 essentially modern, is vital symbolism of the workings of our mind, etc.
