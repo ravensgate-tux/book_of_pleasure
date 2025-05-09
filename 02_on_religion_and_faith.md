@@ -35,18 +35,7 @@
 「知識こそが永遠だ」と言う者たちがいる。だがそれは、“すでに知っていることを学び直す”という幻想の繰り返しにすぎない。「どうすればいいか？」と自分に問いかけた瞬間、私たちは“愚かさ”を誘い込んでしまう。そもそもこの問いがなければ、私たちに“できないこと”などあるだろうか？「集中こそが自由をもたらす」と言う者もいるが、
 法則を思考でとらえた時点で、すでにそれは“束縛”になっている。そこに達した者は、やがて「脱集中（deconcentration）」を求めるようになるだろう。あらゆる観念を切り離し、“ひとつのことだけ”に没入するのは、解放ではなく──想像の自己充足、あるいは**創造の激怒（フューリー）**にすぎない。「万物は神の霊から発せられた光線のようなものだ」と信じる者たちもいる。太陽から放たれた光のように──だが、それならなぜ“解放”が必要なのだ？実際には、物事は“そうである”ように信じられているから、そのように存在しているにすぎない。であれば──私たちがすべきことは、観念を壊すこと。そして信念を空にすることだ。
 
-These and many other doctrines, are declared by me as the perpetuators of sin and illusion. Each and
-all depending on a muddled implication, obscuring, yet evolved from the duality of the consciousness
-for their enjoyment. In fear they would vomit hot blood were they to see the fruits of their actions
-and pleasures. Thus believing in widely different doctrines, they are of the dual principle, necessary
-parasites on each other. Like drugs and the surgeon's knife, they only annul or at best remove an
-effect. They do not change or remove the fundamental cause (the law). "Oh, God, thou art the
-stagnant environment." All is quackery: these religions whose very existence depend on their failure,
-are so full of misery and confusion, have only multiplied arguments, as full of argument as they are
-evil, so crowded with non-essentials, being so barren of any free pleasure in this life or another, I
-cannot uphold their doctrines. Their criterion for enjoyment-death! Better it were a man renounce
-them all, and embrace his own invincible purpose. He cannot go further, and this is his only release.
-By it he may put his pleasure where he will, and find satisfaction.
+こうした教義──そしてそれに類する数多の思想──私はそれらすべてを、罪と幻想を永続させるものとして宣言する。どれもこれも、曖昧な含意に依存し、意識の二元性から“快楽”を引き出すように進化しながら、その本質を曖昧にし、覆い隠している。もし彼らが、自らの行動と快楽の“結果”を本当に目にしたならば、恐怖のあまり、熱い血を吐くことになるだろう。信じている教義はそれぞれ違っていても、彼らはみな“二元性の原理”に属し、お互いに寄生し合っている存在にすぎない。薬や外科手術と同じで、彼らの教義はせいぜい“効果”を抑えるだけ。根本の原因（＝法）を変えることも、取り除くこともできない。「ああ、神よ──おまえは腐りきった環境そのものだ。」すべてはまやかしだ。宗教とは、“失敗”を前提に存在している制度にすぎない。それは悲惨と混乱に満ち、議論ばかりが増え、その議論は悪に満ち、中身は空っぽで、この人生でも次の人生でも、自由な喜びすら生み出せない。私は、そんな教義を肯定することはできない。彼らの「快楽の基準」──それは、死！それならばいっそ、すべてを捨ててしまえ。そして、自分自身の不滅の意志を抱きしめよ。そこから先に進む道はない。だが、それこそが唯一の“解放”である。自分の意志によって、どこに快楽を置くかを決めよ。そうすれば、満足は必ずそこに現れる。
 
 ---
 
