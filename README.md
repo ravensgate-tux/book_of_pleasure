@@ -14,14 +14,40 @@
 ## 🗂 章構成
 
 - [00 序文](00_intro.md)
+
+※オリジナルで執筆（Spareの背景・ZOS/KIA解説など）
+
 - [01 定義（KIA、美徳、自己愛、消耗 など）](01_definitions.md)
+
+Definitions〜Exhaustion までの定義部分（冒頭）
+
 - [02 宗教と信仰に関する批判](02_on_religion_and_faith.md)
+
+Different Religions and Doctrines as Means to Pleasure...〜The Consumer of Religion までの長い批判パート
+
 - [03 自己愛とシジル](03_self_love_and_sigils.md)
+
+Self-Love に関する後半パート、および Sigil に言及される文脈（KIAの転用・エクスタシーに至る過程）
+
 - [04 KIAと「Neither-Neither」](04_kia_and_neither_neither.md)
+
+Kia, in its Transcendental and Conceivable Manifestation〜The Transcendental Law、そして Neither-Neither に言及される箇所
+
 - [05 死の姿勢（Death Posture）](05_death_posture.md)
+
+The Death Posture セクション全文、および儀式的文脈での活用法（postureとecstasyの関係）
+
 - [06 神性についての独白（Soliloquy on Godhead）](06_soliloquy_on_godhead.md)
+
+Soliloquy on Godhead〜The Allegory までの形而上的内省セクション
+
 - [07 二元性とエクスタシー](07_on_duality_and_ecstasy.md)
+
+There is no Duality?〜Desire and Beliefにかけて、快楽・苦痛の統合的解釈
+
 - [08 結論](08_closing_remarks.md)
+
+Self-Love as a Moral Doctrine 〜 最終節（The Doctrine of Eternal Self-Love、The Complete Ritual and Doctrine of Magic など）
 
 ---
 
