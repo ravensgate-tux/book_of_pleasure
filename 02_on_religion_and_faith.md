@@ -32,14 +32,8 @@
 - 2: 2：ローマ時代に使われた「正義の象徴（たとえば秤や剣を持つ女神）」は、神の正義や、現代における私たちの正義とは一致しない──少なくとも、必ずしもそうではない。私たちの「精神の生命力」は、水のように流れるものでもなければ、私たち自身が木のように成長するわけでもない。むしろ、「私たちらしさ」というものの中に、
 それら（水や木）も「どこかで」含まれているのかもしれない。だが今の私たちの精神の動きは、もっとずっと「わかりやすく」「即物的」に表れている。
 
-Others say knowledge only is eternal, it is the eternal illusion of learning-the Ukase of learning what
-we already know. Directly we ask ourselves "how" we induce stupidity; without this conception what
-is there we could not know and accomplish? Others for concentration, it will not free you, the mind
-conceiving the law is bondage. Arrived at that, you will want deconcentration. Dissociation from all
-ideas but one is not release but imaginative fulfilment, or the fury of creation. Others again, that all
-things are emanations of the Divine Spirit, as rays from the Sun, hence the need of emancipation?
-Verily, things are of necessity through their conception and belief. Then let us destroy or change
-conception, and empty the belief.
+「知識こそが永遠だ」と言う者たちがいる。だがそれは、“すでに知っていることを学び直す”という幻想の繰り返しにすぎない。「どうすればいいか？」と自分に問いかけた瞬間、私たちは“愚かさ”を誘い込んでしまう。そもそもこの問いがなければ、私たちに“できないこと”などあるだろうか？「集中こそが自由をもたらす」と言う者もいるが、
+法則を思考でとらえた時点で、すでにそれは“束縛”になっている。そこに達した者は、やがて「脱集中（deconcentration）」を求めるようになるだろう。あらゆる観念を切り離し、“ひとつのことだけ”に没入するのは、解放ではなく──想像の自己充足、あるいは**創造の激怒（フューリー）**にすぎない。「万物は神の霊から発せられた光線のようなものだ」と信じる者たちもいる。太陽から放たれた光のように──だが、それならなぜ“解放”が必要なのだ？実際には、物事は“そうである”ように信じられているから、そのように存在しているにすぎない。であれば──私たちがすべきことは、観念を壊すこと。そして信念を空にすることだ。
 
 These and many other doctrines, are declared by me as the perpetuators of sin and illusion. Each and
 all depending on a muddled implication, obscuring, yet evolved from the duality of the consciousness
