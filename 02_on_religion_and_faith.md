@@ -12,15 +12,7 @@
 
 「信仰は素晴らしい」と言う人もいる。だがもし本当に自分が神であると信じるなら、その人のふるまいがすべて「自分は信じていない」ことを証明してしまう。信じようと努力することは、むしろ「自分には力がない」と自分に刷り込む行為だ。だったら最初から、無力さや取るに足らない存在であることを認めた方がまだ誠実だ。表面的な信仰では、内面の本質は何も変わらない。だから、表面（信仰）を捨てて、奥にあるもの（無力さ）と向き合うべきだ。信仰という「形式」は欺きの道具にすぎない。そしてそれを使う人々自身が、自分の目的からも逸れ、騙されている。Faith（信仰）とは「否定」であり、「比喩としての愚かさ（Idiotcy）」だ。だからいつも、最終的には失敗する。支配者たちは、奴隷たちの首に信仰を押し込むことで、その束縛をいっそう強固なものにしようとする。そしてそれはほとんどの場合うまくいく。逃れられる者はほんのわずかしかいない──だからこそ、彼らには称賛の価値がある。信仰が死んだとき、ようやく〈自己〉がその本来の力を取り戻す。より「愚かでない」者たちは、「神とは自分自身の想念であり、法の支配を受ける存在にすぎない」ということをぼんやりと理解している。そう考えたとき、信仰という野心にどれだけの価値があるだろう？……私はまだ、「すでに神ではない人間」に会ったことがない。
 
-Others again, and those who have much knowledge, cannot tell you exactly what "belief" is, or how
-to believe in what defies natural laws and existing belief. Surely it is not by saying "I believe"; that art
-has long been lost. They are even more subject to bewilderment and distraction directly they open
-their mouths full of argument; without power and unhappy unless spreading their own confusion, to
-gain cogency they must adopt dogma and mannerism that excludes possibility . . . . . . By the
-illumination of their knowledge they deteriorate in accomplishment. Have we not watched them
-decay in ration to their expoundings? Verily, man cannot believe by faith or gain, neither can he
-explain his knowledge unless born of a new law. We being everything, wherefore the necessity of
-imagining we are not?
+知識をたくさん持っている人たちほど、「信じるとは何か」「自然法則や常識を超えたものをどう信じるのか」をはっきりと説明することができない。「信じます」と口に出すことではないことは確かだ。その芸（アート）は、とっくに失われてしまった。そういう人たちは、何かを語ろうと口を開いた瞬間に、ますます混乱し、焦り、力を失っていく。自分自身の混乱を他人に広めてしまわないと落ち着かないほどに、話せば話すほど不幸になる。彼らが「説得力」を得ようとするとき、必ず「ドグマ」や「態度（マナー）」を持ち出して、あらゆる可能性を閉ざしてしまう。そして、皮肉なことに──その「知識の光」によって、彼らはかえって行動力を失ってしまうのだ。私たちは、彼らが言葉を費やせば費やすほど、徐々に朽ちていく様子を見てきたではないか。まことに、人は信仰でも報酬でも本当に信じることはできない。そして知識を語るにも、それがまったく新しい法則から生まれていない限り、真に説明することなどできはしない。……私たちはすでに「すべて」であるのに、なぜ「そうではない」と想像する必要があるのだろう？
 
 **Be ye mystic.**
 
