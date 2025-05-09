@@ -24,16 +24,7 @@
 
 儀式魔術を称賛する者たちもいる。そして彼らは「大いなるエクスタシーを得ている」らしい──が、我々の精神病院はすでに満員で、舞台の上も同じような連中で溢れている！象徴を使えば、本当に象徴そのものになれるのか？私が自分に王冠をかぶせたとして、私は「王」になれるだろうか？いや、それはむしろ滑稽か、あるいは憐れみの対象になるだけだ。こうした「魔術師」たちの多くは、偽りこそが唯一の安全装置であるような存在で、売春宿に入り浸る気取った無職の紳士と変わらない。魔術とは、本来「求めずして引き寄せる自然な力」のことだ。儀式とは、何の演出も要らない状態のことだ。そして私の魔術の教義は、彼らの教義の否定に他ならない。私は彼らをよく知っている──「学ぶことは、自分自身の光を恐れること」だと信じている者たちを。彼らはまるで、他人の魅力に寄生する「吸血鬼」だ。魅力という一点においても、彼らはシラミ同然だ。彼らの実践は、無能さの証明でしかない。子どもや健全な人が自然に持つ喜びを、自ら高める魔術すら持たず、自分の内側から快楽や叡智を引き出す力もない。想像力のぬかるみに依存し、条件だらけの混沌に溺れ、その知識はハイエナが餌を漁るよりも下品に得られたものだ。私は断言する──彼らは最も卑しい動物よりも自由ではなく、満足も得られていない。力も美しさも欠け、個人の魅力すらなく、醜悪に太り、力なき空虚を抱えた彼らは、味覚の悪さと目立ちたがり根性によって、自らを嫌悪すべき存在にしている。エネルギーの自由は、束縛によっては得られない。偉大な力は、分裂や破壊では得られない。そもそも、私たちの精神（またはエネルギー）がすでに縛られ、分断されすぎているからこそ、私たちは力を持てず──まして魔術など起こせないのだ。
 
-Some believe any and every thing is symbolic, and can be transcribed, and explain the occult, but of
-what they do not know. (Great spiritual truths?) So argument a metaphor, cautiously confusing the
-obvious which developes the hidden virtue. This unnecessary corpulency, however impressive, is it
-not disgusting? (The Elephant is exceeding large but extremely powerful, the swine though odious
-does not breed the contempt of our good taste.) If a man is no hero to his servant, much less can he
-remain a mystic in the eyes of the curious; similarity educates mimicry. Decorate your meaning,
-however objectionable (as fact), after you have shown your honesty. Truth, though simple, never
-needs the argument of confusion for obscurity; its own pure symbolism embraces all possibilities as
-mystic design. Take your stand in commonsense and you include the truth which cannot lie; no
-argument has yet prevailed. Perfect proportion suggest no alteration, and what is useless decays.
+何でもかんでも「象徴」だと信じている人たちがいる。そしてそれを使ってオカルトを“説明”しようとする。だが、彼ら自身が何を語っているのか、実のところ理解してはいない。（「偉大な霊的真理」でも扱っているつもりなのか？）こうして議論はたちまち「比喩」に化け、明快だったはずのものが、注意深く、だが混乱したまま曖昧にされていく。その結果、かえって「隠れた徳」なんてものが出てきたように見える。この不要な「肥大化した語り」──たとえそれが見かけは立派でも、……不快ではないか？（象のように巨大なものは確かに力強いが、醜いブタのほうが、少なくとも私たちの「美意識」にとってはまだマシだ。）もし人が、召使いの前で英雄でないなら、好奇心旺盛な他人の前では、ますます「神秘家」になど見えはしない。類似性は、真似を生むだけだ。自分の主張がいかに物議を醸そうともまず正直さを見せよ。そのうえで意味に飾りをつけるべきだ。真実というものは、いくらシンプルであっても、わざとらしい混乱や誤魔化しを必要とはしない。その純粋な象徴性は、それだけで神秘的なデザインとして無限の可能性を含んでいる。常識の立場に立て。そこには、「嘘をつけない真実」が必ず含まれている。議論など、これまで一度たりとも「真実に勝った」ためしはない。完璧な比率（＝真のもの）は、どこもいじる必要がない。逆に、役に立たないものは、いずれ自然に朽ちる。
 
 They reject all the modern symbolism 1 and reach an absurd limit very early. Not counting on change
 2 and (at times) the arbitrary nature of symbolism or the chance of a preserved folly, by their
