@@ -33,7 +33,7 @@
 
 - [03 宗教を食らう者](03_self_love_and_sigils.md)
 
-- [04 Soliloquy on God-Head」](04_kia_and_neither_neither.md)
+- [04 神性についての内なる問い](04_kia_and_neither_neither.md)
 
 - [05 The Death Posture](05_death_posture.md)
 
