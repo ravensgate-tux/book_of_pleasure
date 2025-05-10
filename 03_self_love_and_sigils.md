@@ -4,7 +4,7 @@
 
 ---
 
-🇯🇵 The Consumer of Religion
+🇯🇵 宗教を食らう者
 
 **KIA──超越と可知のあいだに現れるもの。**
 
