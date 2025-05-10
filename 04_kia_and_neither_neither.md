@@ -6,14 +6,10 @@
 
 🇯🇵 神性についての内なる問い
 
-**Who ever Thought Thus?**
+**誰がこんな風に考えたのか?**
 
-Something is causing Pain and something energizes the Agony: may it not be caused through the
-latent Idea of Supreme Bliss? And this eternal expectation, this amassing of ornament on decay, this
-ever-abiding thought- is coincidental with the vanity preceding death? O, squalid thought from the
-most morbid spleen how can I devour thee and save my Soul? Ever did it answer back-"Pay homage
-where due: the Physician is the Lord of existence!" This superstition of medicine-is it not the essence
-of cowardice, the agent of Death?
+何かが痛みを生み、何かがその苦悶に火を注いでいる。──その根にあるのは、至高の歓喜への潜在的な観念ではないのか？永遠に続くこの「期待」──
+崩れゆくものに飾りを重ね、死の前触れのように脳裏に巣くうこの思考──それは虚飾という名の同伴者ではないのか？ああ、憂鬱という脾臓から生まれたこのみすぼらしい思想よ、どうすればおまえを食らい尽くし、魂を救うことができるというのか？それでも、いつも答えは返ってくる。「しかるべき場所に礼を尽くせ。医者こそが存在の主である」と。だが、この医療という迷信は……臆病さの本質であり、死の代理人ではないか？
 
 Strange no one remembers being dead? Have you ever seen the Sun?-If you have then you have seen
 nothing dead-in spite of you different belief! Which is the more dead "you" or this corpse? Which of
