@@ -4,7 +4,7 @@
 
 ---
 
-🇯🇵 Soliloquy on God-Head.
+🇯🇵 神性についての内なる問い
 
 **Who ever Thought Thus?**
 
