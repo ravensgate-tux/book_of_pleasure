@@ -31,7 +31,7 @@
 
 - [02 宗教は、欲望の取り扱い説明書なのか？](02_on_religion_and_faith.md)
 
-- [03 The Consumer of Religion](03_self_love_and_sigils.md)
+- [03 宗教を食らう者](03_self_love_and_sigils.md)
 
 - [04 Soliloquy on God-Head」](04_kia_and_neither_neither.md)
 
