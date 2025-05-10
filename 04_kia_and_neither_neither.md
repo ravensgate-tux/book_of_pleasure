@@ -1,6 +1,7 @@
 ### 🐌 「知られざる呪術師」による注釈
 
 >ウォッチマンを見張るのはだれなのか？
+※補足：このSpareの逆説的命題「神々を殺す者もまた神である」は、アラン・ムーアの『ウォッチメン』における問い「見張りを見張る者は誰か？」とも共振する。どちらも「監視する存在」や「信じるもの」の構造的自己言及を露呈し、真の主体性と倫理を問うものである。
 
 ---
 
@@ -15,17 +16,10 @@
 
 あなたは幽霊も神も「見たことがない」から信じない？──何を言っている。自分の信念が生み出した“嘲笑う幽霊たち”を、まだ見ていないとでも？謙虚さの名を借りた狂気の哄笑（ベドラム）、欲望の神（マモン）にひれ伏す毎日──あなたの「自己」というグロテスクな観念そのものが、すでに亡霊ではないのか？そうだ──あなたのあらゆる機能、そして最も勇敢な“嘘”たちですら、それらもまた「神々」だ。ならば問おう。あなたの神々を殺す者とは、誰なのか？それもまた──神である。
 
-There is no proof that you existed before? What an excuse! No one has returned to tell us? What a
-damning advocate! You are but what you were-somehow changed? You are the case Prima Facie that
-you are reincarnated to perhaps anything? "Perhapses" are possible! Can you do differently to what
-you do? Never shall I tire of asserting that you constantly do differently!
+「以前に存在していた証拠なんて、どこにもない」──そんなものは、ただの言い訳にすぎない。「誰も戻ってきて教えてくれないから」？なんて情けない、破滅的な弁護人なんだ！結局、あなたは「かつてのあなた」──それがどうにかして“変化した”存在なのではないか？ならば、あなた自身が輪廻した証拠の筆頭だと言えるかもしれない。それも、“何にでも”なりうる存在として。「たぶん」は可能性だ。では、今とは違うことがあなたにできるのか？──私は声を大にして言おう。あなたは常に、今とは違うことをしているではないか！
 
-What is the "ugliness" that offends? Is it the vague knowledge that you will have to change your
-mind-that you are germinating what you contain? You are always remembering what you forgot; today
-may be the day of reckoning-of believing by force what you disbelieved? Now if to-day is
-yesterday in all but appearances-then to-morrow also is to-day- the day of decay! Daily is this
-universe destroyed, that is why you are conscious! There is no Life and Death? Such ideas should be
-less than comic.
+「醜さ」とは何なのか？それにあなたが苛立ち、目をそむけるのはなぜか？──それは、自分が“考えを変えなければならない”という、ぼんやりした予感のせいではないか？あなたの中で、何かが芽吹こうとしている──それが不快なのでは？あなたはいつも、忘れていたことを思い出している。それが今日かもしれない──信じたくなかったものを、“信じさせられる日”が、ついに来たのかもしれない。
+もしも今日が、見かけ以外は昨日と同じだとすれば──明日もまた今日であり、腐敗の日（the day of decay）ということになる。この宇宙は、日々破壊されている。だからこそ──あなたは意識しているのだ。生と死は存在しない？そんな観念は──笑い話にもならないほど無意味だ。
 
 **There is no Duality?**
 
