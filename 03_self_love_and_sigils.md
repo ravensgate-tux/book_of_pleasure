@@ -10,39 +10,6 @@
 
 名づけられるものではない。にもかかわらず、私はそれを「KIA」と呼ぶ。だがそれを「自分自身」だと名乗ることすら、私は恐れている。概念によって語られるKIAは、あの「永遠のKIA」とは異なる。それは、あらゆる信念を焼き尽くすもの──にもかかわらず、「自己」の原型として立ち上がり、「死すべきもの」の意識に奴隷のようにまとわりつく。私はそれを説明しようと試みるが、書かれたものはたいてい──いや、意図的に──“嘘の書（Book of Lies）”となる。正統ではなく、原初にして逸脱。neither-neither──「在る」でもなく、「無い」でもない。それは飛翔する視線（volant sight）のように、言葉の狭間から、ただ“そこにある”という気配を伝えてくる。言葉でかろうじて語りうるKIAは、「Neither-Neither（いずれでもない）」である。それは、いかなる属性も付け加えられていない〈私〉──全在（すべてに偏在しているという感覚）のなかで立ち上がる意識だ。それは“聖なるアルファベット”によって象徴的に書き記され、私はいまから、それについて綴ろうとしている。KIAの「放射（emanation）」は、それ自体の“強度”であり──だが、そこに「必然性」があるわけではない。それは、常に存在してきた、処女の量（virgin quantum）。その豊かさによって、私たちは「存在」を得たのだ。だが、それが“どこで・なぜ・どのように”関係しているかを、誰が語ることができよう？疑う者は、“時間”という労苦のなかに自らの限界を住まわせてしまう。KIAは何ものにも「関係している」のではなく、すべてを“許容している”にすぎない。それは概念では捉えられない。だが同時に、すべての概念を貫く本質であり、「意味」の中にひそむ歓びとして浸透している。天と地よりも前にあり──それらを超える側面において、だが知性を超えてはいない何か。このKIAは、原初的なセクシュアリティ（性愛原理）として理解することができる。すなわち、自己愛の中にある歓びという概念である。この“新たなセクシュアリティ”を理解できるのは、「死の姿勢（death posture）」を会得した者だけだ。そのとき、全能の愛が、完全に満たされる。常に信念に仕え、欲望に引きずられている者は、その状態に自らを同一化しているがゆえに、満たされぬまま、欲望の果てしない枝分かれだけを見ることになる。KIAは、それ自身とすべてのものの「生成者」である。だが、それはいかなるものにも似てはいない。この性愛原理は、初期の“単純さ”のうちに、永遠の本質を体現している。時間はそれを変えなかった──ゆえに私はこれを“新しい”と呼ぶ。この“先祖的性愛原理”と、「自己」という観念は、実は同一である。この“同一性”こそが、無限の可能性をはらむ根源の法則であり、最初に現れた二元性、そして──あらゆる霊性の門に立つスフィンクス（謎の中の謎）なのだ。あらゆる「概念化された観念」は、KIAの情動において“光”として始まり、そして終わる。それは、「自己」という観念を生み出したときに誘発されるエクスタシー（歓喜）だ。「自己」という観念は、〈統一〉の式（formula）によって成り立っている。この統一は、「持続する現実」としての必然性を持ち、あらゆる問い、あらゆる存在、可視／不可視の宇宙は、すべてそこから生じた。統一（ユニティ）は、二元性（デュアリティ）を想像し、二元性は、三位一体（トリニティ）を生み出し、それがさらに、四文字神名（テトラグラマトン）を生み出した。二元性（＝統一の“自らへの反映”）は「時間」となり、概念の複合体として、「自由に回帰する永遠の揺らぎ」を担う。三位一体としての二元性は、「6つの感覚」と、「性の5つの側面」として展開される。それは、否定（拒絶）のなかで自己を取り込み直すための環境として現れ、ここに「完全なセクシュアリティ」の構造が形成される。四文字（テトラグラマトン）による二元性の構造は、12の配置によって組み立てられ、人間の複雑さそのもの（the human complex）をあらわす。これは信じる者にとって、「12の戒律」と呼ばれるかもしれない。KIAは、“永遠の十進法（eternal decimal）”を想像する。その多重性（multiplicity）は永遠を抱きかかえ、あらゆる「存在をかたちづくる多様な形式」が、そこから生じてくる。自己愛の息吹（breath）によって活性化され、生命は「ひとつ（one）」という意識に目覚める。だが、“自己”はそれ自身の反発力でもあり、そのために、対立・調和・生・死という状態を交互に繰り返す。この4つの原理──対立、調和、生、死──は、実はすべて同一のものである。それは、「自己」あるいは「意識」としての完全な概念であり、ゆえにこれらはひとつに融合し、象徴（Symbol）として表現可能である。2つからつくられた1つのかたち。それは、三重であり、同時に四方に広がっている。
 
-Of name it has no name, to designate. I call it Kia I dare not claim it as myself. The Kia which can be
-expressed by conceivable ideas, is not the eternal Kia, which burns up all belief but is the archetype
-of "self," the slavery of mortality. Endeavouring to describe "it," I write what may be but not usuallycalled
-the "book of lies". 3 The unorthodox of the originable-a volant "sight," that conveys somehow
-by the incidental, that truth is somewhere. The Kia which can be vaguely expressed in words is the
-"Neither-Neither," the unmodified "I" in the sensation of omnipresence, the illumination symbolically
-transcribed in the sacred alphabet, and of which I am about to write. Its emanation is its own
-intensity, but not necessariness, it has and ever will exist, the virgin quantum-by its exuberance we
-have gained existence. Who dare say where, why and how it is related? By the labour of time the
-doubter inhabits his limit. Not related to, but permitting all things, it eludes conception, yet is the
-quintessence of conception as permeating pleasure in meaning. Anterior to Heaven and Earth, in its
-aspect that transcends these, but not intelligence, it may be regarded as the primordial sexual
-principle, the idea of pleasure in self-love. Only he who has attained the death posture can
-apprehend this new sexuality, and its almighty love satisfied. He that is ever servile to belief, clogged
-by desire, is identified with such and can see but its infinite ramifications in dissatisfaction.4 The
-progenitor of itself and all things, but resembling nothing, this sexuality in its early simplicity,
-embodies the everlasting. Time has not changed it, hence I call it new. This ancestral sex principle,
-and the idea of self, are one and the same, this sameness its exaction and infinite possibilities, the
-early duality, the mystery of mysteries, the Sphinx at the gates of all spirituality. All conceivable
-ideas begin and end as light in its emotion, the ecstasy which the creation of the idea of self induces.
-The idea is unity by the formula of self, its necessary reality as continuity, the question of all things,
-all this universe visible and invisible has come out of it. As unity conceived duality, it begot trinity, 
-begot tetragrammaton. Duality being unity, is time, the complex of conception, the eternal
-refluctuation to the primeval reality in freedom-being trinity of dualities, is the six senses, the five
-facets of sex-projecting as environment for self-assimilation in denial, as a complete sexuality. Being
-tetragrammaton of dualities is twelvefold by arrangement, the human complex, and may be called the
-twelve commandments of the believer. It imagines the eternal decimal, its multiplicity embracing
-eternity, from which spring the manifold forms, which constitute existence. Vitalized by the breath of
-self-love, life is conscious of one. Self being its opposing force, is alternately conflict, harmony, life
-and death. These four principles are one and the same-the conception considered as the complete
-"self" or consciousness-hence they may be blended into unity and Symbolized. One form made by
-two, that is three-fold and having four directions.
-
 - 3: About this "Self"; all conception is the dual principle, the law which is its
 conception.
 - 4: The unmodified sex principle refracted through the dual principle emanates the
