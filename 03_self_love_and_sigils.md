@@ -8,14 +8,9 @@
 
 **KIA──超越と可知のあいだに現れるもの。**
 
-名づけられるものではない。にもかかわらず、私はそれを「KIA」と呼ぶ。だがそれを「自分自身」だと名乗ることすら、私は恐れている。概念によって語られるKIAは、あの「永遠のKIA」とは異なる。それは、あらゆる信念を焼き尽くすもの──にもかかわらず、「自己」の原型として立ち上がり、「死すべきもの」の意識に奴隷のようにまとわりつく。私はそれを説明しようと試みるが、書かれたものはたいてい──いや、意図的に──“嘘の書（Book of Lies）”となる。正統ではなく、原初にして逸脱。neither-neither──「在る」でもなく、「無い」でもない。それは飛翔する視線（volant sight）のように、言葉の狭間から、ただ“そこにある”という気配を伝えてくる。
-The Kia which can be vaguely expressed in words is the
-"Neither-Neither," the unmodified "I" in the sensation of omnipresence, the illumination symbolically
-transcribed in the sacred alphabet, and of which I am about to write. Its emanation is its own
-intensity, but not necessariness, it has and ever will exist, the virgin quantum-by its exuberance we
-have gained existence. Who dare say where, why and how it is related? By the labour of time the
-doubter inhabits his limit. Not related to, but permitting all things, it eludes conception, yet is the
-quintessence of conception as permeating pleasure in meaning. Anterior to Heaven and Earth, in its
+名づけられるものではない。にもかかわらず、私はそれを「KIA」と呼ぶ。だがそれを「自分自身」だと名乗ることすら、私は恐れている。概念によって語られるKIAは、あの「永遠のKIA」とは異なる。それは、あらゆる信念を焼き尽くすもの──にもかかわらず、「自己」の原型として立ち上がり、「死すべきもの」の意識に奴隷のようにまとわりつく。私はそれを説明しようと試みるが、書かれたものはたいてい──いや、意図的に──“嘘の書（Book of Lies）”となる。正統ではなく、原初にして逸脱。neither-neither──「在る」でもなく、「無い」でもない。それは飛翔する視線（volant sight）のように、言葉の狭間から、ただ“そこにある”という気配を伝えてくる。言葉でかろうじて語りうるKIAは、「Neither-Neither（いずれでもない）」である。それは、いかなる属性も付け加えられていない〈私〉──全在（すべてに偏在しているという感覚）のなかで立ち上がる意識だ。それは“聖なるアルファベット”によって象徴的に書き記され、私はいまから、それについて綴ろうとしている。KIAの「放射（emanation）」は、それ自体の“強度”であり──だが、そこに「必然性」があるわけではない。それは、常に存在してきた、処女の量（virgin quantum）。その豊かさによって、私たちは「存在」を得たのだ。だが、それが“どこで・なぜ・どのように”関係しているかを、誰が語ることができよう？疑う者は、“時間”という労苦のなかに自らの限界を住まわせてしまう。KIAは何ものにも「関係している」のではなく、すべてを“許容している”にすぎない。それは概念では捉えられない。だが同時に、すべての概念を貫く本質であり、「意味」の中にひそむ歓びとして浸透している。
+
+ Anterior to Heaven and Earth, in its
 aspect that transcends these, but not intelligence, it may be regarded as the primordial sexual
 principle, the idea of pleasure in self-love. Only he who has attained the death posture can
 apprehend this new sexuality, and its almighty love satisfied. He that is ever servile to belief, clogged
