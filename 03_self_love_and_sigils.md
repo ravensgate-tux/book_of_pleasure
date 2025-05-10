@@ -6,7 +6,7 @@
 
 🇯🇵 The Consumer of Religion
 
-**Kia, in its Transcendental and Conceivable Manifestation.**
+**KIA──超越と可知のあいだに現れるもの。**
 
 Of name it has no name, to designate. I call it Kia I dare not claim it as myself. The Kia which can be
 expressed by conceivable ideas, is not the eternal Kia, which burns up all belief but is the archetype
