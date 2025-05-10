@@ -8,17 +8,9 @@
 
 **KIA──超越と可知のあいだに現れるもの。**
 
-名づけられるものではない。にもかかわらず、私はそれを「KIA」と呼ぶ。だがそれを「自分自身」だと名乗ることすら、私は恐れている。概念によって語られるKIAは、あの「永遠のKIA」とは異なる。それは、あらゆる信念を焼き尽くすもの──にもかかわらず、「自己」の原型として立ち上がり、「死すべきもの」の意識に奴隷のようにまとわりつく。私はそれを説明しようと試みるが、書かれたものはたいてい──いや、意図的に──“嘘の書（Book of Lies）”となる。正統ではなく、原初にして逸脱。neither-neither──「在る」でもなく、「無い」でもない。それは飛翔する視線（volant sight）のように、言葉の狭間から、ただ“そこにある”という気配を伝えてくる。言葉でかろうじて語りうるKIAは、「Neither-Neither（いずれでもない）」である。それは、いかなる属性も付け加えられていない〈私〉──全在（すべてに偏在しているという感覚）のなかで立ち上がる意識だ。それは“聖なるアルファベット”によって象徴的に書き記され、私はいまから、それについて綴ろうとしている。KIAの「放射（emanation）」は、それ自体の“強度”であり──だが、そこに「必然性」があるわけではない。それは、常に存在してきた、処女の量（virgin quantum）。その豊かさによって、私たちは「存在」を得たのだ。だが、それが“どこで・なぜ・どのように”関係しているかを、誰が語ることができよう？疑う者は、“時間”という労苦のなかに自らの限界を住まわせてしまう。KIAは何ものにも「関係している」のではなく、すべてを“許容している”にすぎない。それは概念では捉えられない。だが同時に、すべての概念を貫く本質であり、「意味」の中にひそむ歓びとして浸透している。
+名づけられるものではない。にもかかわらず、私はそれを「KIA」と呼ぶ。だがそれを「自分自身」だと名乗ることすら、私は恐れている。概念によって語られるKIAは、あの「永遠のKIA」とは異なる。それは、あらゆる信念を焼き尽くすもの──にもかかわらず、「自己」の原型として立ち上がり、「死すべきもの」の意識に奴隷のようにまとわりつく。私はそれを説明しようと試みるが、書かれたものはたいてい──いや、意図的に──“嘘の書（Book of Lies）”となる。正統ではなく、原初にして逸脱。neither-neither──「在る」でもなく、「無い」でもない。それは飛翔する視線（volant sight）のように、言葉の狭間から、ただ“そこにある”という気配を伝えてくる。言葉でかろうじて語りうるKIAは、「Neither-Neither（いずれでもない）」である。それは、いかなる属性も付け加えられていない〈私〉──全在（すべてに偏在しているという感覚）のなかで立ち上がる意識だ。それは“聖なるアルファベット”によって象徴的に書き記され、私はいまから、それについて綴ろうとしている。KIAの「放射（emanation）」は、それ自体の“強度”であり──だが、そこに「必然性」があるわけではない。それは、常に存在してきた、処女の量（virgin quantum）。その豊かさによって、私たちは「存在」を得たのだ。だが、それが“どこで・なぜ・どのように”関係しているかを、誰が語ることができよう？疑う者は、“時間”という労苦のなかに自らの限界を住まわせてしまう。KIAは何ものにも「関係している」のではなく、すべてを“許容している”にすぎない。それは概念では捉えられない。だが同時に、すべての概念を貫く本質であり、「意味」の中にひそむ歓びとして浸透している。天と地よりも前にあり──それらを超える側面において、だが知性を超えてはいない何か。このKIAは、原初的なセクシュアリティ（性愛原理）として理解することができる。すなわち、自己愛の中にある歓びという概念である。この“新たなセクシュアリティ”を理解できるのは、「死の姿勢（death posture）」を会得した者だけだ。そのとき、全能の愛が、完全に満たされる。常に信念に仕え、欲望に引きずられている者は、その状態に自らを同一化しているがゆえに、満たされぬまま、欲望の果てしない枝分かれだけを見ることになる。KIAは、それ自身とすべてのものの「生成者」である。だが、それはいかなるものにも似てはいない。この性愛原理は、初期の“単純さ”のうちに、永遠の本質を体現している。時間はそれを変えなかった──ゆえに私はこれを“新しい”と呼ぶ。この“先祖的性愛原理”と、「自己」という観念は、実は同一である。この“同一性”こそが、無限の可能性をはらむ根源の法則であり、最初に現れた二元性、そして──あらゆる霊性の門に立つスフィンクス（謎の中の謎）なのだ。
 
- Anterior to Heaven and Earth, in its
-aspect that transcends these, but not intelligence, it may be regarded as the primordial sexual
-principle, the idea of pleasure in self-love. Only he who has attained the death posture can
-apprehend this new sexuality, and its almighty love satisfied. He that is ever servile to belief, clogged
-by desire, is identified with such and can see but its infinite ramifications in dissatisfaction.4 The
-progenitor of itself and all things, but resembling nothing, this sexuality in its early simplicity,
-embodies the everlasting. Time has not changed it, hence I call it new. This ancestral sex principle,
-and the idea of self, are one and the same, this sameness its exaction and infinite possibilities, the
-early duality, the mystery of mysteries, the Sphinx at the gates of all spirituality. All conceivable
+All conceivable
 ideas begin and end as light in its emotion, the ecstasy which the creation of the idea of self induces.
 The idea is unity by the formula of self, its necessary reality as continuity, the question of all things,
 all this universe visible and invisible has come out of it. As unity conceived duality, it begot trinity,
