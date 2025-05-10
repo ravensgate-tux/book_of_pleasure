@@ -16,15 +16,11 @@
 
 **超越の法──〈新しきもの〉の法則と啓示。**
 
-KIAの法則は、それ自身が裁き手であり、いかなる「必然性」にも従ってはいない。名もなきKIAを、いったい誰がつかむことができるだろう？それは明白であるのに、理解できない。形を持たず──されど、その設計はこの上なく優れている。KIAの望みとは、それ自身のあふれ出る豊かさ（superabundance）であり、その神秘的な目的を、誰が断言できようか？私たちがそれを「知ろう」とすればするほど、KIAはますます遠く、ますます不可解なものとなる。私たちの信仰すら、ただその輪郭を曇らせてしまう。それには属性がない。私は、その名すら知らない。だが、なんと自由なことか──支配（sovereignty）すら必要としない。（王国とは、自らを略奪するものなのだ。）系譜も持たない。誰がそれを「自分と関係がある」と主張できよう？美徳もない──だからこそ、その自己愛はなんと気高く、心地よいのか。KIAはこう言う──「必要はない」「どうでもいい」その全視点からの自己愛は、歓喜という無敵の目的に仕えている。至高の歓喜は、対立を模倣しながら均衡を保つ。それは傷つくこともなく、労苦することもない。KIAは、自らを引き寄せ、自立している。けれど、それを「均衡」と呼ぶこともできないだろう。もし私たちが、その法則をほんの少しでも模倣できたなら──あらゆる創造は、命令なしに私たちの歓びと調和に仕えてくれるはずだ。
-Kia transcending conception, is unchanging and inexhaustible, there is no need of illumination to see it. If
-we open our mouths to speak of it, it is not of it but of our duality, mighty though it be in its early
-simplicity! Kia without conceiving, produces its rendezvous as the fulness of creation. Without
-assertion the mightiest energy, without smallness it may appear the least among things. Its possession
-ours without asking, its being free, the only thing that is free. Without distinction, it has no favourites,
-but nourishes itself. In fear all creation pays homage-but does not extol its moral, so everything
-perishes unbeautifully. We endow ourselves with the power we concieve of it, and it acts as master-5,
-never the cause of emancipation. Thus for ever from "self" do I fashion the Kia, without likeness, but
+KIAの法則は、それ自身が裁き手であり、いかなる「必然性」にも従ってはいない。名もなきKIAを、いったい誰がつかむことができるだろう？それは明白であるのに、理解できない。形を持たず──されど、その設計はこの上なく優れている。KIAの望みとは、それ自身のあふれ出る豊かさ（superabundance）であり、その神秘的な目的を、誰が断言できようか？私たちがそれを「知ろう」とすればするほど、KIAはますます遠く、ますます不可解なものとなる。私たちの信仰すら、ただその輪郭を曇らせてしまう。それには属性がない。私は、その名すら知らない。だが、なんと自由なことか──支配（sovereignty）すら必要としない。（王国とは、自らを略奪するものなのだ。）系譜も持たない。誰がそれを「自分と関係がある」と主張できよう？美徳もない──だからこそ、その自己愛はなんと気高く、心地よいのか。KIAはこう言う──「必要はない」「どうでもいい」その全視点からの自己愛は、歓喜という無敵の目的に仕えている。至高の歓喜は、対立を模倣しながら均衡を保つ。それは傷つくこともなく、労苦することもない。KIAは、自らを引き寄せ、自立している。けれど、それを「均衡」と呼ぶこともできないだろう。もし私たちが、その法則をほんの少しでも模倣できたなら──あらゆる創造は、命令なしに私たちの歓びと調和に仕えてくれるはずだ。KIAは、概念を超えて存在する。それは変わることなく、尽きることもない。見るために啓示を求める必要はない──それはすでにそこに在る。私たちがKIAについて語ろうと口を開けば、語られるのはKIAではなく、私たち自身の「二元性」にすぎない。それがいかに壮大であっても──その始原のシンプルさにおいてすら──それはKIAそのものではない。KIAは、「想念」を必要とせずに、創造の“出会いの場”を生み出す。何の主張もないままに、最大の力を発揮する。そして、何の小ささも持たぬままに、あらゆるものの中で最も小さく見えることすらある。それは、私たちが求めずともすでに持っているもの。KIAの本質は「自由」であり、この世界で唯一、本当に自由なものだ。区別を持たず、誰かを特別扱いすることもない。それは自らを養い、自らに仕える。すべての創造物は、KIAに畏れを込めて敬意を払ってはいる。だが、その“道徳性”を称えることはしない。ゆえに──あらゆるものは、美しくないままに滅びていく。私たちは、KIAに対して自らが抱いたイメージによって、それを“力”として自分に与えようとする。そのときKIAは、「主人」として振る舞うようになる──だがそれは、解放の源（emancipation）ではない。
+
+
+
+Thus for ever from "self" do I fashion the Kia, without likeness, but
 which may be regarded as the truth. From this consultation is the bondage made, not by intelligence
 shall we be free. The law of Kia is its ever original purpose, undetermined, without change the
 emanations, through our conception they materialize and are of that duality, man takes this law from
