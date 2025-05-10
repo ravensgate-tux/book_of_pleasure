@@ -20,15 +20,9 @@ KIAの法則は、それ自身が裁き手であり、いかなる「必然性�
 
 
 
-Thus for ever from "self" do I fashion the Kia, without likeness, but
-which may be regarded as the truth. From this consultation is the bondage made, not by intelligence
-shall we be free. The law of Kia is its ever original purpose, undetermined, without change the
-emanations, through our conception they materialize and are of that duality, man takes this law from
-this refraction, his ideas-reality. With what does he balance his ecstasy? Measure for measure by
-intense pain, sorrow, and miseries. With what his rebellion? Of necessity slavery! Duality is the law,
-realization by suffering, relates and opposes by units of time. Ecstasy for any length of time is
-difficult to obtain, and laboured heavily for. Various degrees of misery alternating with gusts of
-pleasure and emotions less anxious, would seem the condition of consciousness and existence.
+こうして私は、「自己」から常にKIAをかたちづくろうとする。KIAには似姿など存在しない。だが、それは「真理」として見なすことができるかもしれない。KIAとの対話（consultation）こそが、私たちを束縛に導く。知性によって、私たちは自由にはなれない。KIAの法則とは、つねに“初源の意志”である。それは規定されることなく、変わることなく放射を続けている。だが、私たちの「概念」を通じてその放射が物質化されるとき、それは二元性のうちにとらえられる。人間は、この「屈折（refraction）」を通じてKIAの法を受け取り、そこから“自分の現実”を構成する。では──人は何を代償にして歓喜（ecstasy）を得ているのか？激しい痛み、悲しみ、苦悩。喜びの等価交換として、彼はそれを支払っている。では──反逆の代償は何か？それは、必要としての「奴隷状態」である。二元性（duality）こそが法である。苦しみを通じてのみ理解され、「時間」という単位のなかで、関連し、対立しあっている。歓喜の状態を、長く維持することは難しい。それを得るには、多大な労苦が必要になる。苦悩のさまざまな階調が、一時的な歓びや、少し軽やかな感情の吹きすさびと交互に訪れる。それが、おそらく──「意識」と「存在」が受け入れざるをえない、基本条件なのだ。
+
+
 Duality in some form or another is consciousness as existence. It is the illusion of time, size, entity,
 etc.-the world's limit. The dual principle is the quintessence of all experience, no ramification has
 enlarged its early simplicity, but is only its repetition, modification or complexity, never is its
