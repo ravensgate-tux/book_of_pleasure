@@ -11,12 +11,7 @@
 何かが痛みを生み、何かがその苦悶に火を注いでいる。──その根にあるのは、至高の歓喜への潜在的な観念ではないのか？永遠に続くこの「期待」──
 崩れゆくものに飾りを重ね、死の前触れのように脳裏に巣くうこの思考──それは虚飾という名の同伴者ではないのか？ああ、憂鬱という脾臓から生まれたこのみすぼらしい思想よ、どうすればおまえを食らい尽くし、魂を救うことができるというのか？それでも、いつも答えは返ってくる。「しかるべき場所に礼を尽くせ。医者こそが存在の主である」と。だが、この医療という迷信は……臆病さの本質であり、死の代理人ではないか？
 
-Strange no one remembers being dead? Have you ever seen the Sun?-If you have then you have seen
-nothing dead-in spite of you different belief! Which is the more dead "you" or this corpse? Which of
-you has the greater degree of consciousness? Judging by expression alone-which of you appears
-enjoying Life most? May not this "belief" in death be the "will" that attempts "death" for your
-satisfaction, but can give you no more than sleep, decay, change-hell? This constant somnambulism
-is "the unsatisfactory."
+奇妙なことに──「死んでいたときのこと」を覚えている者は誰もいない。あなたは太陽を見たことがあるか？あるのなら、“死”を見たことなどないはずだ。あなたのどんな信念があろうとも、死んだものなど見たことはない。では問おう──今この場にいる「あなた」と、そこに横たわる「死体」どちらの方が“死”に近い？どちらがより意識的だろう？表情だけを見て判断するなら──いったいどちらがより「人生を楽しんでいるように見える」だろうか？この「死」への信念こそが、あなた自身の“死にたいという意志”なのではないか？その信念が望んでいるのは「眠り」「腐敗」「変化」、あるいは「地獄」ではないのか？この“絶え間ない夢遊病的状態”──それこそが、「満たされなさ（dukkha）」なのだ。
 
 You disbelieve in Ghosts and God-because you have not seen them? What! You have never seen the
 mocking ghosts of your beliefs?-the Laughing Bedlam of your humility or Mammon-your grotesque
