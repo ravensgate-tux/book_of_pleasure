@@ -20,26 +20,9 @@ KIAの法則は、それ自身が裁き手であり、いかなる「必然性�
 
 
 
-こうして私は、「自己」から常にKIAをかたちづくろうとする。KIAには似姿など存在しない。だが、それは「真理」として見なすことができるかもしれない。KIAとの対話（consultation）こそが、私たちを束縛に導く。知性によって、私たちは自由にはなれない。KIAの法則とは、つねに“初源の意志”である。それは規定されることなく、変わることなく放射を続けている。だが、私たちの「概念」を通じてその放射が物質化されるとき、それは二元性のうちにとらえられる。人間は、この「屈折（refraction）」を通じてKIAの法を受け取り、そこから“自分の現実”を構成する。では──人は何を代償にして歓喜（ecstasy）を得ているのか？激しい痛み、悲しみ、苦悩。喜びの等価交換として、彼はそれを支払っている。では──反逆の代償は何か？それは、必要としての「奴隷状態」である。二元性（duality）こそが法である。苦しみを通じてのみ理解され、「時間」という単位のなかで、関連し、対立しあっている。歓喜の状態を、長く維持することは難しい。それを得るには、多大な労苦が必要になる。苦悩のさまざまな階調が、一時的な歓びや、少し軽やかな感情の吹きすさびと交互に訪れる。それが、おそらく──「意識」と「存在」が受け入れざるをえない、基本条件なのだ。
+こうして私は、「自己」から常にKIAをかたちづくろうとする。KIAには似姿など存在しない。だが、それは「真理」として見なすことができるかもしれない。KIAとの対話（consultation）こそが、私たちを束縛に導く。知性によって、私たちは自由にはなれない。KIAの法則とは、つねに“初源の意志”である。それは規定されることなく、変わることなく放射を続けている。だが、私たちの「概念」を通じてその放射が物質化されるとき、それは二元性のうちにとらえられる。人間は、この「屈折（refraction）」を通じてKIAの法を受け取り、そこから“自分の現実”を構成する。では──人は何を代償にして歓喜（ecstasy）を得ているのか？激しい痛み、悲しみ、苦悩。喜びの等価交換として、彼はそれを支払っている。では──反逆の代償は何か？それは、必要としての「奴隷状態」である。二元性（duality）こそが法である。苦しみを通じてのみ理解され、「時間」という単位のなかで、関連し、対立しあっている。歓喜の状態を、長く維持することは難しい。それを得るには、多大な労苦が必要になる。苦悩のさまざまな階調が、一時的な歓びや、少し軽やかな感情の吹きすさびと交互に訪れる。それが、おそらく──「意識」と「存在」が受け入れざるをえない、基本条件なのだ。二元性は、どのような形であれ、「意識＝存在そのもの」である。それは、時間、サイズ、実体などの“幻想”であり、世界という構造の“限界”でもある。二元の原理は、あらゆる体験の本質（quintessence）だ。どれほど複雑に枝分かれしようと、それはただの繰り返し、変形、装飾にすぎず、あの始源の単純さを超えることはない。二元性の“進化”が完了することは決してない。結局それは、「自己の経験」という地点より先には進めず、そこに戻っては再び統合される──何度も繰り返される「失速のクライマックス」だ。無限の複雑化によって、元の単純さに回帰し続けること。それが、二元性の“進化”と呼ばれているものの正体だ。「なぜ？」という問いは、その仕組みでは決して理解できない。それを理解しようとするのではなく、すべての存在の学びを包み込む“幻想”として受け取れ。それは、年老いても賢くならぬ「最も古い者」として──また、あらゆるものの母として、理解されるかもしれない。ゆえに、すべての経験は幻想であり、法は二元であると認めよ。空間が物体の内と外に同時に満ちているように──この移り変わる宇宙の内と外にもまた、「時間を持たぬ第二の原理」が満ちているのだ。
 
-
-Duality in some form or another is consciousness as existence. It is the illusion of time, size, entity,
-etc.-the world's limit. The dual principle is the quintessence of all experience, no ramification has
-enlarged its early simplicity, but is only its repetition, modification or complexity, never is its
-evolution complete. It cannot go further than the experience of self-so returns and unites again and
-again, ever an anti-climax. For ever retrogressing to its original simplicity by infinite complication is
-its evolution. No man shall understand "Why" by its workings. Know it as the illusion that embraces
-the learning of all existence. The most aged one who grows no wiser, it may be regarded as the
-mother of all things. Therefore believe all experience to be illusion, and the law of duality. As space
-pervades an object both in and out, similarly within and beyond this ever-changing cosmos, there is
-this secondless principle.
-
-- 5: By scores of incarnations, our eventual "self" is derived from the attributes with
-which we endow our God, the abstract Ego or conceptive principle. All conception is
-a denial of the Kia, hence we are its opposition, our own evil. The offspring of
-ourselves, we are the conflict of what we deny and assert of the Kia. It would seem as though
-we cannot be too careful in our choice, for it determines the body we inhabit.
-
+>5: 数え切れぬ転生（scores of incarnations）を経て、私たちの最終的な「自己」は──私たちが「神」に投影した属性によって、かたちづくられていく。すなわち、「抽象化されたエゴ」や、「観念としての原理」に私たちが与えた力によって。だが、すべての観念（conception）はKIAの否定である。ゆえに、私たちはKIAにとっての**「反対存在＝自己自身の悪（our own evil）」**なのだ。私たちは自らを生み出し、KIAに対して否定と肯定を同時に行う存在として──葛藤（conflict）そのものとなって現れている。思われるに──私たちは、選び取るものに対して、あまりに慎重すぎるということはないのだ。なぜなら、それが私たちが宿る“身体”を決定してしまうのだから。
 
 ---
 
