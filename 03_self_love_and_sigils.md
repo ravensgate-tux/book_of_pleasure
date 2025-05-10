@@ -8,11 +8,8 @@
 
 **KIA──超越と可知のあいだに現れるもの。**
 
-Of name it has no name, to designate. I call it Kia I dare not claim it as myself. The Kia which can be
-expressed by conceivable ideas, is not the eternal Kia, which burns up all belief but is the archetype
-of "self," the slavery of mortality. Endeavouring to describe "it," I write what may be but not usuallycalled
-the "book of lies". 3 The unorthodox of the originable-a volant "sight," that conveys somehow
-by the incidental, that truth is somewhere. The Kia which can be vaguely expressed in words is the
+名づけられるものではない。にもかかわらず、私はそれを「KIA」と呼ぶ。だがそれを「自分自身」だと名乗ることすら、私は恐れている。概念によって語られるKIAは、あの「永遠のKIA」とは異なる。それは、あらゆる信念を焼き尽くすもの──にもかかわらず、「自己」の原型として立ち上がり、「死すべきもの」の意識に奴隷のようにまとわりつく。私はそれを説明しようと試みるが、書かれたものはたいてい──いや、意図的に──“嘘の書（Book of Lies）”となる。正統ではなく、原初にして逸脱。neither-neither──「在る」でもなく、「無い」でもない。それは飛翔する視線（volant sight）のように、言葉の狭間から、ただ“そこにある”という気配を伝えてくる。
+The Kia which can be vaguely expressed in words is the
 "Neither-Neither," the unmodified "I" in the sensation of omnipresence, the illumination symbolically
 transcribed in the sacred alphabet, and of which I am about to write. Its emanation is its own
 intensity, but not necessariness, it has and ever will exist, the virgin quantum-by its exuberance we
