@@ -13,10 +13,7 @@
 
 奇妙なことに──「死んでいたときのこと」を覚えている者は誰もいない。あなたは太陽を見たことがあるか？あるのなら、“死”を見たことなどないはずだ。あなたのどんな信念があろうとも、死んだものなど見たことはない。では問おう──今この場にいる「あなた」と、そこに横たわる「死体」どちらの方が“死”に近い？どちらがより意識的だろう？表情だけを見て判断するなら──いったいどちらがより「人生を楽しんでいるように見える」だろうか？この「死」への信念こそが、あなた自身の“死にたいという意志”なのではないか？その信念が望んでいるのは「眠り」「腐敗」「変化」、あるいは「地獄」ではないのか？この“絶え間ない夢遊病的状態”──それこそが、「満たされなさ（dukkha）」なのだ。
 
-You disbelieve in Ghosts and God-because you have not seen them? What! You have never seen the
-mocking ghosts of your beliefs?-the Laughing Bedlam of your humility or Mammon-your grotesque
-Ideas of "Self"? Yea, your very faculties and your most courageous Lies are Gods! Who is the slayer
-of your Gods-but a God!
+あなたは幽霊も神も「見たことがない」から信じない？──何を言っている。自分の信念が生み出した“嘲笑う幽霊たち”を、まだ見ていないとでも？謙虚さの名を借りた狂気の哄笑（ベドラム）、欲望の神（マモン）にひれ伏す毎日──あなたの「自己」というグロテスクな観念そのものが、すでに亡霊ではないのか？そうだ──あなたのあらゆる機能、そして最も勇敢な“嘘”たちですら、それらもまた「神々」だ。ならば問おう。あなたの神々を殺す者とは、誰なのか？それもまた──神である。
 
 There is no proof that you existed before? What an excuse! No one has returned to tell us? What a
 damning advocate! You are but what you were-somehow changed? You are the case Prima Facie that
