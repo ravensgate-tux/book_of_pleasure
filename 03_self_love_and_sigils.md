@@ -14,7 +14,7 @@
 >
 >4：未修飾の性の原理（unmodified sex principle）が、二元性を通して屈折（refracted）されると、無限の感情やセクシュアリティが放射される。それらは、KIAの「枝分かれ（ramifications）」とも呼ぶことができる。
 
-**The Transcendental Law, the Law and Testament of the "New."**
+**超越の法──〈新しきもの〉の法則と啓示。**
 
 The law of Kia is its own arbiter, beyond necessitation, who can grasp the nameless Kia? Obvious but
 unintelligible, without form, its design most excellent. Its wish is its superabundance, who can assert
