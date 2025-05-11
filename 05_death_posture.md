@@ -14,23 +14,17 @@
 
 「男」は「女」を含意する。だが私はそれらを──「両性具有」によって超える。「両性具有」はさらに──「去勢者（Eunuch）」を含意する。そして私は──それらすべてを超えて、「いずれでもない（Neither）」という原理に至る。たとえこの「Neither」が曖昧であったとしても、その概念を想起することができるという事実は、それが触れうるもの（palpable）であることを証明している。だとすれば──そこには、さらに別の「いずれでもない」が存在するはずだ。
 
-But the "Neither-Neither" principle of those two, is the state where the mind has passed beyond
-conception, it cannot be balanced, since it implies only itself. The "I" principle has reached the "Does
-not matter- need not be" state, and is not related to form. Save and beyond it, there is no other,
-therefore it alone is complete and eternal. Indestructible, it has power to destroy- therefore it alone is
-true freedom and existence. Through it comes immunity from all sorrow, therefore the spirit is
-ecstasy. Renouncing everything by the means shown, take shelter in it. Surely it is the abode of Kia?
-This having once been (even Symbolically) reached, is our unconditional release from duality and
-time- believe this to be true. The belief free from all ideas but pleasure, the Karma through law
-(displeasure) speedily exhausts itself. In that moment beyond time, a new law can become incarnate,
+「Neither-Neither（二重の否定）」の原理とは、思考があらゆる“概念化”を超えた状態である。この状態には“対になるもの”が存在せず、自らのみを含意する。だから、均衡という概念も成立しない。このとき、「私（I）」の原理は、「どうでもいい（Does not matter）」「存在する必要はない（Need not be）」という地点に到達している。それはあらゆる形態（Form）から切り離された意識状態である。これを除いて、ほかに“何もの”もない。ゆえに──この状態だけが、完全であり、永遠である。破壊されえず、他を破壊しうるこの原理こそが、唯一の「真の自由」そして「実在」なのだ。この状態を通じて、私たちはあらゆる悲しみから免疫を得る。だからこそ──「精神」は歓喜そのものになる。
 
-without the payment of sorow, every wish gratified, he8 having become the gratifier by his law. The
-new law shall be the arcana of the mystic unbalanced "Does not mattter- need not be," there is no
-necessitation, "please yourself" is its creed.9
-In that day there can be deliberation. Without subjection, what you wish to believe can be true.
-"He"10 is pleased by this imitation, the truth revealed to me by all systems of government but is
-himself ungoverned; Kia, the supreme bliss. This the glorious Science of pleasing one's self by a new
-agreement, the art of Self-love by recognition, the Psychology of ecstasy by non-resistance.
+すべてを手放し、この道で示された方法によって──この状態に身を委ねよ。確信をもって言おう。そここそが、Kia（キア）の住処である。たとえ象徴的にであっても、
+一度でもこの状態に触れた者は、時間と二元性から、無条件に解き放たれる。ただ「快楽」だけを残し、すべての観念から自由になったとき、カルマ（苦しみという法則）は急速に力を失う。そして時間の外にあるその瞬間、新たな“法”が、具現化されることが可能となる。そこには、もはや苦しみという代償は存在しない。あらゆる願いが満たされ、「彼」は満たす者そのものとなる。
+
+その「新しい法」とは──神秘的なアンバランス、「どうでもいい／そうでなくてもよい」状態の奥義（アルカナ）である。もはや“こうすべき”という必然性は存在せず、その信条は──ただ一つ、
+
+>「自分の好きにすればいい（Please yourself）」
+
+その日には、ようやく自発的な意志（Deliberation）が可能となる。隷属ではなく、選び取った信仰だけが真実になる。「彼」は、この模倣（＝Kiaの模倣）に喜ぶ。それは、すべての政治体制が私に明かした“真理”だ。──しかし、「彼」自身は、いかなるものにも支配されない。それがKia──至福そのもの。これこそが、新しい協定（New Agreement）による自己満足の科学（Glorious Science）、自己認識による自己愛の術（Art of Self-love）、非抵抗によるエクスタシーの心理学（Psychology of Ecstasy）なのだ。
+
 
 - 6: Sex-less.
 - 7: They being dual have analogy to certain early sex principles in nature. They are carried further in the sacred alphabet, being too abstruse to explain by orthodox words and grammar.
