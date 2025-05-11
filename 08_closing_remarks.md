@@ -105,22 +105,10 @@ Neither-Neither ＝ 天才的認識の触媒
 
 あなたはかつて若い頃、「この世界はなんて不思議な場所なんだろう」と感じたことがあったはずだ。そして「この人生は本当に納得のいく進化の結果なのだろうか？」と、“なぜ？”という感情に満たされたことも。ではなぜ、あなたはその問いをすぐに心から追い払ってしまったのか？日常の、なんでもないモノが突如として壮麗な異物に見えた経験──あるいは、共存し得ないもの同士にふと感じた“つながり”の感覚──そんなあいまいな驚きは、深い議論においてはときおり表れるが、たいていは「言い訳」として軽く処理されてしまう。創造の神秘と親密になったときに感じる好奇心とショック──それを深く追求しようとしないのはなぜだろう？たとえば「“驚き”とはそもそも何なのか？」という問いに、なぜあなたは真剣に取り組まないのか？あなたが神よりも犬の喧嘩を信じない理由は何か？だがあなたは、神よりも犬を恐れているのだ。神に対する敬虔な不安に首を絞められている今のあなたと、あの無垢な赤ん坊との違いは何なのだろう？──おそらく、こうした問いの中にこそ、「無知」とは何かの核心がある。
 
-Belief is the fall from the Absolute. What are you going to believe? Truth seeks its own negation.
-Different aspects are not the truth, nor are they necessary to truth. Of its emanations which are you to
-strangle at birth? Are you illegitimate? You believe in right and wrong- what punishment will you
-determine? Can you escape the driving "Must"? Who can escape boredom- without change? Who
-remain single and content! What man among you is large and free enough to encompass his "self"?
-Your belief obfuscates lineage. Ambition is smallness- your customed environment. Remember, time
-is an unstudied imagination of the experienced. What may be called the early experience was its
-completion, so of learning there is no finis. What you learn to-morrow is determined by what you
-have done- the accomplished lesson of yesterday. Never learning to-day what you can do to-morrow
-is called loss, but is theft from time, wholesomeness and rejuvenescence. Repeat this delay again and
-again till you arrive at spontaneity, chance in safety. The pursuit of learning (believing) is the
-grotesque incubator of stupidity.
+信じるとは、〈絶対〉からの堕落である。──あなたは、いったい何を信じようというのか？“真理”とは、つねに自らを否定しようとする力を持っている。複数の側面が真理を構成するわけではないし、
+それらは真理にとって“必要”ですらない。その“真理の放射”のうち、あなたはどれを誕生の瞬間に締め殺そうとする？──あなた自身、正統ではないのでは？あなたは「善と悪」を信じている──では、どんな“罰”を課そうとする？あなたは、絶対的な「〜せねばならぬ（Must）」から逃れられるか？変化なしに、退屈から逃れられるか？誰が、独りのままで満ち足りていられる？あなた自身の「自己」を包み込めるほど大きく、自由な人間はいるのか？信念が、あなたの〈系譜〉を曇らせている。「野心」は小ささの象徴であり、あなたを囲う環境は、習慣づけられた小宇宙に過ぎない。思い出せ──「時間」とは、経験が勝手に想像しているだけのものだ。「初期の経験」はすでに“完了”していたのだから、学びに「終わり」はない。あなたが明日学ぶことは、昨日の行為が決める。「明日できることを今日学ばない」のは「損失」と呼ばれているが、それは時間からの盗みであり、本来の健全さや若返りの可能性を奪うものだ。こうして遅延を何度も繰り返せ──やがて自発性（spontaneity）にたどり着くまで。“学ぶこと（＝信じること）”の追求は、愚かさを育むグロテスクな孵卵器に過ぎないのだ。仮に「本当に信じること」ができるなら、私たちはその“信じること”の価値を体現できるだろう。
 
-If you could truly believe, we should realise the virtue of it. We are not free to believe . . . . however
-much we so desire, having conflicting ideas to first exhaust. Sigils are the art of believing; my
-invention for making belief organic, ergo, true belief.
+だが私たちは、「自由に信じること」はできない。──なぜなら、私たちの中にはまず消尽されねばならない相反する観念があるからだ。シジル（Sigils）とは、信じる技法である。私が考案したこの技術は、信念を有機的なものに変えるものだ。言い換えれば、それは「本物の信念」を成立させる方法である。
 
 When by the wish to believe- it is of the necessity incompatible with an existing belief and is not
 realized through the inhibition of the organic belief- the negation of the wish, faith moves no
