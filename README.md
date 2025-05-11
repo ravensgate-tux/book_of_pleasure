@@ -51,7 +51,7 @@
 <table> <tr> <td style="vertical-align:top; padding-right:20px;">
 20世紀初頭のロンドンに生きた芸術家・魔術師・思想家。10代で画壇の寵児となるも、既存の芸術・宗教・魔術体系すべてに背を向け、自らの内的ヴィジョンに従った独自の魔術体系「Zos Kia」を構築。人間の無意識を“描く身体（ZOS）”と“観る意識（KIA）”という対概念で捉え、シジル魔術や自己愛を軸にした極めて個人的・即興的な実践を展開した。ケイオスマジックの先駆者として評価される一方で、その文体と思想の難解さゆえに誤読も多く、没後もなお再評価と誤解が交差する存在である。代表作に『The Book of Pleasure（快楽の書）』『Anathema of Zos』など。
 
-</td> <td> <img src="spare_photo_relaxed_2.png" alt="Austin Osman Spare" width="200"/> </td> </tr> </table>
+</td> <td> <img src="spare_photo_relaxed_2.png" alt="Austin Osman Spare" width="600"/> </td> </tr> </table>
 
 
 
