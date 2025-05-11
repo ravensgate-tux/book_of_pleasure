@@ -32,16 +32,10 @@
 
 >12: 恐れた瞬間、それは実際に命を奪う。
 
-Whosoever shall study his true nature a little, him does the "self" investigate with his extraordinary
-conduct. He can compel anything without offending. As the tendency of the most lustful ceases
-before publicity and death, so do morals and faith before the perfect bliss. A glimpse of the truth is
-born of purity of love: when the desire is without fear, when it does not desire possession. When the
-thought is fulfilled by vision. The fire that is all pleasure is loosed at his will, he is attraction, the
-cynosure of women. When the believing principle is devoid of faith, as sterile of possessing ideas of
-God - he is indestructible. Only when there is no fear in any form is there realisation of identity with
-reality (freedom). For them there is no danger in negligence, there being no discrimination. For him
-who is conscious of the slightest differentiation there is fear. So long as there is perception of selfreproach
-or conscience, there is pain germinating: there is no freedom. 
+ほんの少しでも自らの本性を学ぼうとする者には、「自己（self）」が──驚くべき行動によって応える。彼は何も傷つけることなく、あらゆるものを従わせることができる。もっとも強い欲望でさえ、「人前に出ること」や「死」を前にしては消え失せるように、道徳や信仰も、完全なる至福を前にしては力を失う。真実のひらめきは、純粋な愛から生まれる。──それは、恐れを伴わない欲望。所有を望まない欲望。思考が視覚によって満たされたとき、火のような快楽が意志のままに解き放たれる。彼自身が「引力」となり、女性たちの目を集める中心（cynosure）となる。信念の原理（believing principle）が、信仰をもたないとき──つまり、神を「所有する」観念に不妊であるとき、彼は不滅となる。あらゆる「恐れ」が消えたとき、初めて人は、現実との同一性（＝自由）を実感する。
+
+彼らには、「怠慢」による危険はない。分別が存在しないからだ。だが、ほんのわずかでも“区別”を意識する者には、常に恐れがある。「自責の念」や「良心」があるかぎり、痛みが芽生え続ける。そこに、自由はない。
+
 
 He who believes anything he perceives or imagines, falls into sin. By believing without feeling perturbation, forgetting ideas of
 external and internal, he regards everything as self, and is the consciousness of non-resistance, has no
