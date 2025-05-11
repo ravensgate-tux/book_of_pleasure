@@ -270,14 +270,23 @@ KIAは進化の原因でもなければ、時間にも属さない。意識や�
 >16:「自己吸引（self-attraction）」に関する章は省略された。
 >17:「これこそが試金石（test）である。疑う者は自然と、自らを差し出すだろう（submit himself）。」
 
-Man to invoke pleasure in his choice, subtracts from desire, his desire is partial desire, becomes subduple
-(conflict), never is his energy full. Having no true focus, he is deceived in his strength and
-attains a pure measure of pleasure from his body. In success how heavy is his sentence! Pleasure
-becomes the illusion. Through dire necessity, "his means," he is bound to its cause and effect, and
-becomes a holcaust on the pyre of sentiment. This self-love is the only full energy, all else a
-wrapping of dissatisfaction, the hypothesis of desires which obscures.
-Man in the misery of his illusions and unsatisfied desires, wings his flight to different religions, and
-doctrines, seeks redeception, a hypnotic, a palliative from which he suffers fresh miseries in
+>人は快楽を得ようとして、欲望から“何か”を差し引く。
+
+その結果、彼の欲望は「部分的な欲望」となり、二重構造（二律背反）に落ち込む。──彼のエネルギーは、決して満たされることがない。
+
+>真の焦点を持たない彼は、自らの強さを錯覚し、ただ肉体的な快楽に一時の充足を得る。
+
+だが、成功の代償は重い。その快楽すら、幻想と化すのだ。
+
+彼は「手段（means）」という避けがたい必要（dire necessity）に囚われ、因果の鎖につながれ、感傷という火葬台の上に犠牲者（holocaust）として捧げられる。
+
+**真の自己愛──**
+
+それだけが完全なエネルギーである。それ以外のすべては、不満という布（wrapping of dissatisfaction）に包まれた、仮説（hypothesis）としての欲望にすぎない。それは──欲望の核心を覆い隠すものなのだ。
+
+>人は自らの幻想と満たされぬ欲望の苦しみの中で、あちこちの宗教や教義へと逃避の羽ばたきを始める。
+
+だがそれは、「再び騙される」ための探求──新たな苦しみをもたらす催眠剤にすぎない。
 
 exhaustion. The terms of the cure are new illusions, greater entanglement, more stagnant
 environment.
