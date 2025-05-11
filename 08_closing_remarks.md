@@ -4,7 +4,7 @@
 
 ---
 
-🇯🇵 The Complete Ritual and Doctrine of Magic
+🇯🇵 魔術の儀式と教義──完全版
 
 **Ecstasy in Self-love the Obsession**
 
