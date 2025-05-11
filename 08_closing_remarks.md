@@ -228,37 +228,21 @@ Spareが提唱する**「シジル」とは、
 
 **私自身について**
 
-Conceiving, thou hast given no sign of life. In claiming thee, a labour of creating value, is nothing
-worth holding, nothing satisfying; the realization of thy inhibition all? By self-effacement would
-seem reality. This self, how empty! how prolific of incompleteness! In self-denial its stimulation to
-simulate reality . . . . more and more comes out- these ugly mists of illusion are parental, the cause of
-Heaven's hatred! That is why I fear to believe in God, subordination to an attribute, an idea of Self is
-not freedom of love! Probably Almighty is he who is unconscious of the idea of God. Now may the
-fierceness of my unity be "Thy" silence and for me no longer a query or labour to espouse my doubt.
-Yet mankind for ever doubts, quirks, and for every pleasure pays, till he becomes millionary: the
-punishment shall fit the appraisement of his capitalization, there is that fear! The rich in dross, to
-cheat his conscience, affects humility, speaks of himself as "poor," his possessions as "burdens," or of
-"small account"! Of what consolation the truth in the day of weary waiting and watching, the restless
-striving, the imprisonment, the rack, the horrors of every conceivable torture? When he becomes
-accustomed, loses reality, and no longer deterred, will he then create God and miseries afresh? Oh,
-folly of the world, deny thy faith, renounce this Bloody-Sceptred God and confess. The completion
-of folly is the beginning of childhood, but of knowledge there is no end. It was the straying that
-found the path direct. From childhood, I have never denied my invincible purpose. Oh, silent
-watcher, thou sleepless eye of the Universe, watch over the beginning of all my ideas. The misery of
-the world would seem eternal, whilst I, in the midst, like an infant not yet smiling, am impervious in
-purity (of self-love) but I dare not claim its service! I am in eternal want of realization, poor though I
-be, my contentment is beyond your understanding. An opinionist, I fear to advocate an argument, or
-compromise myself by believing my own doctrines as such . . . .may they ever be their own
-expurgers! Fearsome of knowledge, may my belief be its emptiness, yea, ignorance! From my daring
-to believe religions, doctrines, creeds, so shall I hold the jewel of truth. So cautios am I,
-simultaneously do I deny that which I affirm, and hold fast to the "not-necessity," by paradox
-superseded, without antecedent, spontaneous, I revert to the Absolute, watch my intoxication and
-control- the reaction of Karma. How easy is the Way, it would seem as though nothing should be said
-but all unsaid! May my words be few and pregnant! Alas, the futility of the idea of God has not yet
-reached its limit, all men liars, appear striving for insanity as its climax: while I alone as one
-prematurely aged, reason tottering on its throne, remain sane, in positive chastity, confessing no
-conscience, no morals- a virgin in singleness of purpose.
+受胎していながら、汝（われ）は生の徴を示さぬ。わたしは汝を呼びかけ、価値を創造しようとした──が、得たものに持ち続けるに足る価値はなく、満たされるものもなかった。抑圧の自覚、それがすべてだったのだろうか？自己を消し去ることでこそ、現実に触れられるように思える。だがこの「自己」こそが、いかに空虚で──いかに未完の産物を生み出すものか！自己否定は、あたかも現実の模倣であるかのように働く。だが、それが生み出すのはますます多くのもの──醜く、もやもやとした幻想の霧。それこそが「天が憎むもの」の根源だ。わたしが「神を信じること」を恐れるのは、そこに属性や〈自己〉の観念への従属があるからだ。それは愛の自由ではない。──おそらく、「神」という観念に無自覚である者こそが、本当に「全能なる者（Almighty）」なのだろう。
 
+願わくば、わたしの統合の烈しさが、そなた（汝）の沈黙となれ。そして、わたしにとっては──疑念を抱え、それに関わることすら、もはや必要ないものとなれ。しかし、人類というものは、いつまでも疑い、ひねくれ、快楽に値段をつけては代償を払う。やがては「金銭の億万長者」となり、その報いとして、「代償主義的な苦痛」を背負うことになる。彼らは富のなかにいても、「自分は貧しい」「重荷だ」「大したものじゃない」と謙遜を装って良心をごまかす。
+
+だが──その真理に、何の慰めがあろうか？待ち続け、見つめ続け、悩み続け、拘束され、拷問され、あらゆる地獄を味わってきた人類にとって。もしその「地獄」に慣れてしまったとき、彼はまた「神」や「苦悩」を新たに創り出すのだろうか？愚かな世界よ、その信仰を否定せよ！ 血まみれの王笏を掲げる神を退け、正直になれ！
+
+愚かさの完成は、子どもへの回帰である。だが、知識に終わりはない。迷ったことでこそ、私は「真っ直ぐな道」を見出した。幼少の頃から、私は自分の「打ち砕けぬ意志（invincible purpose）」を否定したことがなかった。
+
+おお、沈黙せる見張り人よ──宇宙の眠らぬ眼よ──すべての思念の始まりを、見守ってくれ。この世界の苦悩は永遠のように思える。わたしはその中心にいて、まだ微笑みすら浮かべぬ赤子のように、自己愛の純粋さに包まれている。だが、わたしはその奉仕を名乗ることすら、怖れている。私は永遠に「実現」を求める貧しき者──だが、わたしの「満足」は、そなたたちには理解できまい。
+
+わたしは意見を持つ者だが、自らの主張を擁護することは恐れている。あるいは、自分の教義を「信じる」ことで自らを妥協させたくない。だから願うのだ──わたしの教義は、つねに自らを浄化し続けるものであってほしい。わたしは知識を恐れる。だからこそ、私の信仰は「空虚」であり、「無知」であってほしい。
+
+わたしが宗教や教義や信条を信じる勇気を持てたときこそ、真理の宝を手にすることができる。それゆえ私は、いつも同時に「肯定したことを否定する」。「必要でないもの」を保持し、因果にとらわれぬ絶対へと還る。わたしは陶酔を見守りつつ、それを制御する──それがカルマの反作用なのだ。
+
+この道の何と易しいことよ──本当は、何も語るべきではなく、すべてを語らずに終えるべきなのだ。わたしの言葉が、少なくとも豊かなものであるように願う！だが、「神」という観念の虚しさは、いまだその限界に達していない。人は皆、嘘をつき、「狂気」こそがその帰結であるかのように生きている。そしてわたし一人──あたかも早すぎて老いたかのように──理性は崩れ落ちそうな王座の上にあってなお、正気を保ち、「貞潔」を守る。私は、「良心」も「道徳」も持たぬ者。ただひとつの目的において純粋であり、処女のようにある。
 
 ---
 
