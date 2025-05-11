@@ -33,16 +33,11 @@
 
 偉大なる科学者たちが、我々の呼吸に潜む微生物の死をもたらす性質を次々と発見している。彼らの理論が正しいとすれば──我々はすでに死んでいなければおかしいではないか？いいや、信じるがいい！科学の理論は正しい。疑念の信者たちを、決して失望させることはない。私たちはますますそれに親しみ、知ろうとする衝動に駆られる。そして──その知識が病と死をもたらすだろう。だが、安心せよ。その“死の知識”は、同時に“破壊の力”も与えてくれる！──だが、誰を破壊するために？すべては「辻褄が合う」ように計算されているのだ。これが「意志」の価値だろうか？「力への意志」だと？なんと生命を守り、なんと選択を洗練させ、なんと心地よく、なんと高貴な探求なのだろうか！ああ、科学者たちよ、底なしの奈落（Bottomless Pit）を、どうぞ発見しつづけてくれ！やがて、あなた方が科学にどっぷり浸ったとき──雷鳴が轟き、その殺意が稲妻となって放たれるだろう。そして、新たな希望が──？サーカス用の新たな生き物たちが──？そこから生まれてくるかもしれない。「神性（God-head）」の概念は、常に惰性（inertia）を孕んでいる。だからこそ、それはやがて“その正反対”へと変容していくのだ。なぜなら、それを最初から“内包していた”からだ。
 
-The master must be the painful learner of his stupidity?
+「主人」たる者は、自らの愚かさを痛みをもって学ばねばならぬのか？
 
-The idea of God ever means the forgetfulness of supremacy and Godliness. So must be supplanted by
-fear, eh?
+「神」という観念があるかぎり、そこには常に“神性”と“至高性”の忘却がつきまとう。そしてその忘却は、恐れによって埋められるのだ──そうだろう？
 
-There is no Atheist, no one is free from auto-biography, there is no fearless pleasurist?
-
-The conception is the absence of its indisputable reality within! When the conception is memorial in
-forgetfulness-it may be the chance of its reality for you?? When the prayer-(you are always praying)
-has transmutated to its Blasphemy-you are attractive enough to be heard-your desire is gratified!
+無神論者などいない。誰ひとり、自分語り（自伝）から自由な者はいない。恐れを知らぬ快楽主義者？そんなものは存在しない。「概念」とは──その中に否定しがたい現実が“不在”であるということなのだ。だが、その概念が忘却の中に“記憶”として刻まれているとき──それは、あなたにとって現実になる“可能性”を持つ。そして、「祈り」──（そう、あなたは常に祈っている）──それがついに冒涜へと変容したそのとき──あなたは十分に魅力的となる。あなたの欲望は、そのとき初めて、満たされる。
 
 What a somersault of humility!
 Whether God is projected as master by fear or as the dweller within by love Gods we are all the time,
