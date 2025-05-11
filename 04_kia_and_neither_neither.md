@@ -21,17 +21,9 @@
 「醜さ」とは何なのか？それにあなたが苛立ち、目をそむけるのはなぜか？──それは、自分が“考えを変えなければならない”という、ぼんやりした予感のせいではないか？あなたの中で、何かが芽吹こうとしている──それが不快なのでは？あなたはいつも、忘れていたことを思い出している。それが今日かもしれない──信じたくなかったものを、“信じさせられる日”が、ついに来たのかもしれない。
 もしも今日が、見かけ以外は昨日と同じだとすれば──明日もまた今日であり、腐敗の日（the day of decay）ということになる。この宇宙は、日々破壊されている。だからこそ──あなたは意識しているのだ。生と死は存在しない？そんな観念は──笑い話にもならないほど無意味だ。
 
-**There is no Duality?**
+**二元性は存在しないのか？**
 
-You are conscious of the gay Butterfly you observe and are conscious of being "You": the Butterfly is
-conscious of being "itself," and as such, it is a consciousness as good as and the same as yours, i.e., of
-you being "you." Therefore this consciousness of "you" that you both feel is the same "you"? Ergo,
-you are one and the same-the mystery of mysteries and the most simple thing in the world to
-understand! How could you be conscious of what you are not? But you might believe differently? So,
-if you hurt the Butterfly you hurt yourself, but your belief that you don't hurt yourself protects you
-from hurt-for a time! Belief gets tired and you are miserably hurt! Do what you will-belief is ever its
-own inconsistency. Desire contains everything, hence you must believe in everything-if you believe at
-all! Belief seems to exclude commonsense.
+あなたは、舞い飛ぶ蝶を見つめている。あなたはそれを「蝶」だと感じ、同時に「あなた自身」であることも感じている。蝶もまた、自分自身であるという意識を持っている。つまり、蝶が感じている「自分」と、あなたが感じている「自分」は──まったく同じ“意識のかたち”ではないのか？だからこそ、「自分である」という感覚そのものは、蝶とあなたで共通している。ゆえに──あなたと蝶は同一である。それは、あらゆる神秘の中で最も神秘的で、そしてこの世界でもっとも単純な真理なのだ。そもそも、あなたは「自分でないもの」を意識できるだろうか？だが、そうは思わないかもしれない。信念が違えば、違って見える。だから──あなたが蝶を傷つけたとき、あなた自身もまた傷ついている。だが、「自分は傷ついていない」と信じているかぎり、しばらくのあいだは痛みを感じずに済む。けれどその“信念”は、いずれ疲れ果てる。そしてあなたは、ひどく傷つくことになる。好きなように信じるがいい。だが──信念とは常に、自己矛盾をはらんでいる。欲望とは、すべてを含んでいる。だからこそ──何かを信じるなら、「すべて」を信じなければならない。信念は、しばしば「常識」を排除してしまうのだ。
 
 There is no doubt about it-this consciousness of "Thee" and "Me" is the unwelcome but ever ready
 torturer-yet it "need not be so" in any sense! Is it not a matter of Fear? You are fearsome of entering a
