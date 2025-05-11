@@ -44,14 +44,9 @@ Spareの思想において、信念とは固定されたものではなく、否
 エゴが対立や執着を超え、「満たす者（gratifier）」として機能しはじめることで、個の自己が“絶対的自己”へと変質するという思想を示している。
 
 
-**The Ritual and Doctrine**
+** 儀式と教義（The Ritual and Doctrine）**
 
-Lying on your back lazily, the body expressing the condition of yawning, suspiring while conceiving
-by smiling, that is the idea of the posture. Forgetting time with those things which were essentialreflecting
-their meaninglessness, the moment is beyond time and its virtue has happened.
-Standing on tip-toe, with the arms rigid, bound behind by the hands, clasped and straning the utmost,
-the neck streched- breathing deeply and spasmodically, till giddy and sensation comes in gusts, gives
-exhaustion and capacity for the former.
+まずは、仰向けにだらりと横たわる。その姿勢は、まるであくびをしかけている身体のように、緩く、自然に。微笑みながら息をゆっくり吐き──そのとき「微笑によって概念する」という行為が、この姿勢の核心である。かつて必要だと思い込んでいたものたちを、忘れよう。それらが持っていたはずの「意味」すら、いまや無意味として映るように。そうして──時間が溶けたその一瞬。そのとき、“徳”が発現する。次に、別の姿勢を取る。つま先立ちになり、両腕は背後で組み、できる限り強く引き絞るようにして、首を後方にぐいと反らす。そして、深く、断続的に呼吸する。──めまいが起こり、感覚が突発的な波のように押し寄せてくるまで、この姿勢を続ける。これにより、前述の「死の姿勢」へと至るための、肉体的・精神的消耗状態（Exhaustion）が得られる。この“消耗”こそが、意識を空にする準備状態であり、Spareが説く魔術的創造の「入口」にあたる。
 
 Gazing at your reflection till it is blurred and you know not the gazer, close your eyes (this usually
 happens involuntarily) and visualize. The light (always an X in curious evolutions) that is seen
