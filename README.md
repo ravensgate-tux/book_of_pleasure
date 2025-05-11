@@ -16,7 +16,7 @@
 
 
 <div align="center">
- <img src="death_posture.jpg" width="200">
+ <img src="book_pic.png" width="600">
 </div>
 
 ---
