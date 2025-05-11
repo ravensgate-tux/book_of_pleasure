@@ -87,7 +87,7 @@ an end mean evolution to endless means.
 In that most remarkable simplicity there is no beginning or end of wisdom or of anything, so how can
 it be related to conception and intelligence?
 
-**Self-Love as a Moral Doctrine and Virtue.***
+**Self-Love as a Moral Doctrine and Virtue.**
 
 The criterion of action, is freedom of movement, timeliness of expression, pleasuring. The value of a
 moral doctrine is in its freedom for transgression. Simplicity I hold most precious. Are not the most
