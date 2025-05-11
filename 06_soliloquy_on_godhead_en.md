@@ -30,7 +30,7 @@ you sin, but desire equally desires preservation of moral instinct, so desire is
 weakly enough). Have no fear, the Bull of earth has long had nothing to do with your unclean
 conscience, your stagnant ideas of morality. The microbe alone would seem without fear!
 
-- 11: The elemental morality or fear of displeasing.
+>11: The elemental morality or fear of displeasing.
 
 **The Complexity of the Belief (Know Thyself).**
 
