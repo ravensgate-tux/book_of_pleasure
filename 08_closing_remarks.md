@@ -45,46 +45,34 @@
 
 **魔術的憑依（天才）と狂気の違いについての覚え書き**
 
-MAGICAL obsession is that state when the mind is illuminated by sub-conscious activity evoked
-voluntarily by formula at our own time, etc., for inspiration. It is the condition of Genius.
+魔術的憑依とは、無意識の活動を、自らの意思とタイミングで式文（フォーミュラ）を用いて喚起し、その結果として精神が照らし出される状態のことである。これはすなわち、天才の状態を指す。これに対し、その他の「憑依」は「盲が盲を導く」ようなものである。これはクワイエティズム（静的受動）によって引き起こされ、「ミーディアム的状態（mediumism）」として知られている。すなわち、自我（Ego）が外部からのいかなる影響──精霊的存在、エレメンタル、あるいは肉体を持たないエネルギー──に対して開かれてしまっている状態である。
 
-Other obsession is the "blind leading the blind," caused by quietism, known as mediumism, an
-opening out of the Ego to (what is called) any external influence, elementals, or disembodied energy.
-A transmutated consciousness that is a resistance to "true" sub-conscious activity, it being a voluntary
-insanity, a somnambulation of the Ego with "no form" or control to guide it: hence its emanations are
-stupid in suggestion, or memories of childhood.
+こうした状態は「意識の変成」ではあるが、真の無意識活動に対する抵抗作用にすぎず、自発的な狂気である。これは、自我が「形」や「制御」を持たずに夢遊状態にあるようなものであり、そこから放たれるものは、愚かな示唆や子供時代の記憶の断片にすぎない。
 
-Obsession known as or related to insanity is an experience that is dissociated from the personality
-(Ego) through some sort of rejection. It is sub-crystalline, and cannot become permanently attached
-to the sub-consciousness, not having exhausted or completed itself by realisation. Depending on its
-degree of intensity and resistance shown at some time or another, the Ego has or has not knowledge
-of the obsession; always is its expression autonomous, divorced from personal control, power of
-direction and timing. Concentration determines dissociation. Enthusiasm for one object seeking
-completion by identification, sacrifices all else, or deliberately forgets. Its separation from the Ego (it
-becoming equal, or more in bulk than the rest of the consciousness, causes subdivision or "double
-personality"), is caused by its own intensity or by shock of resistance determined by some
-incompatibility of the desired or desire.
+狂気とされる憑依とは、自我（Ego）から何らかの拒絶によって切り離された体験である。これは「準結晶的（sub-crystalline）」な構造を持ち、自己実現によって完了も消尽もされていないため、無意識の深層に恒久的に定着することはできない。この種の憑依は、それがどれほど強烈か（強度）と、どれだけの抵抗を示したかによって、自我がそれを意識しているか否かが変わる。しかし常にその表出は自律的（autonomous）であり、個人の制御や意図、タイミングからは逸脱している。また、「集中」しすぎることは乖離（dissociation）を引き起こす要因となる。たとえば、ある対象への熱狂が高まりすぎて自己同一化による完結を求めると、他のすべてを犠牲にするか、意図的に忘却することになる。その結果、当該欲望や対象が自我から切り離され、意識の他の部分と同等かそれ以上の重みを持つようになると、人格の分裂（二重人格）が起きる。この分離の原因は、その欲望自体の過度な強さ、または欲望が満たされなかったときの衝撃にある。
 
-Concentration is dissatisfied desire, a conflict that can never be satisfied, because of its means. When
-the Ego, not appearing to have or not knowing the means of fulfilment, seeks its repudiation,
-repression, imaginative fulfilment, or transmutation to escape its worry. None of these is the desire's
-or obsession's annihilation, but its separation or concealment from the rest of the Ego, its premature
-sub-conscious existence. It is held there only when some form of resistance is active, when resistance
-is dormant- control is given to the presiding obsession, allowing its incarnation in, and swamping of
-the Ego, which has to live and perform its emotional experience. Disease and Insanity (all disease is
-insanity) is caused when the disembodied energy has no vital function. It is this energy which is
-utilised for the vitalization of Sigils.
+集中とは、満たされない欲望の状態である。それは常に葛藤（コンフリクト）を抱えており、「その手段そのものが欲望を満たすことを妨げている」ため、永遠に満たされることはない。欲望を持つ自我（Ego）は、その充足手段を持っていない、あるいは手段を理解できていないと感じたとき、以下のような反応を起こす。
 
-**Sigils.**
+- 欲望の否認（repudiation）
+- 抑圧（repression）
+- 想像による代償的な充足（imaginative fulfilment）
+- 別のものへの変換（transmutation）
 
-**The Psychology of Believing.**
+だが、これらはいずれも欲望そのものの消滅ではない。単にその欲望を他の自我の側面から切り離し、隠しているだけである。それはまだ未成熟な無意識内に潜みつづけている。そしてこの欲望（もしくは憑依）が、無意識に押し込められたまま保持されるのは、なんらかの「抵抗（resistance）」が働いているときに限られる。だが、抵抗が眠りについたとき──その欲望（あるいは憑依）は前面に出てきて自我を乗っ取り、強制的にその感情体験を「生きさせる」ことになる。病と狂気（Disease and Insanity）とは、Vital Function を持たない「分離されたエネルギー」によって起こる。こうした剥離したエネルギーこそが、シジル（Sigils）を活性化させるために利用される力なのである。
 
-ascertained, the study of knowledge is unproductive. Even if "they" were known their study is
-useless. We are not the object by the perception, but by becoming it. Closing the gateways of sense is
-no help. Verily I will make common-sense the foundation of my teaching. Otherwise, how can I
-convey my meaning to the deaf, vision to the blind, and my emotion to the dead? In a labyrinth of
-metaphor and words, intuition is lost, therefore without their effort must be learned the truth about
-one's self from him who alone knows the truth . . . . yourself.
+**シジルとは何か？**
+
+**信じるという心理学**
+
+「信じる」ことの心理を知らぬままに、どれほど知識を追い求めても、それは実りなき探究にすぎない。たとえ「彼ら（the objects）」が理解されたとしても──その研究は無意味である。私たちは、対象を「知覚すること」によって対象になるのではない。対象に“なる”ことによって対象になるのだ。五感の入り口を閉ざしたところで、真の理解には役立たない。
+
+私は常識（common-sense）を、自分の教えの基礎としよう。でなければ、どうして私の意味が──
+
+- 耳の聞こえぬ者に伝わり、
+- 目の見えぬ者に映り、
+- 死者に私の感情が届くだろうか？
+
+比喩と言葉の迷宮のなかでは、直観は失われてしまう。ゆえに、努力によらずに、真理とは学ばれるべきものなのだ──「ただひとり真理を知る者」──つまり“あなた自身”から。
 
 Of what use the wisdom of Virginity to him who has been raped by the seducer, ignorance? Of what
 use sciences or any knowledge except as medicine? Hidden treasure does not come at the word nor
