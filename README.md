@@ -41,7 +41,7 @@
 
 - [07 自己愛を語る前に](07_on_duality_and_ecstasy.md)
 
-- [08 The Complete Ritual and Doctrine of Magic](08_closing_remarks.md)
+- [08 魔術の儀式と教義──完全版](08_closing_remarks.md)
 
 ---
 
