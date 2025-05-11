@@ -16,15 +16,9 @@
 
 >- 11: 基本的な道徳観、あるいは“不快を与えることへの恐れ”。
 
-**The Complexity of the Belief (Know Thyself).**
+**信念という複雑構造（汝自身を知れ）**
 
-The nature of belief equals all possibilities ultimately true by identification through culture to an idea
-of time, so what is not timely is not true, and what is not true, prognostication. Thought of one thing,
-implies the possibility of another idea as contradicting but not dissociated, belief is to make "one"
-more convincing. The condition of belief is the denial or limit imposed on the capability of the
-vitality. To believe at all as such is a concentration and schooling to exclude the implied by adopting
-a hypothesis or faith that reflects non-worryingly or deceitfully rationalizes the rejected. Truth is not
-the truth of formula.
+信念の本質とは、あらゆる可能性が「文化」を通じて「時間の枠内」に同一化されることで“真実”になるという構造にある。したがって──「時代にそぐわないもの」は「真実ではない」とされ、逆に「真実でないもの」は「予言（prognostication）」と見なされる。あるひとつのことを考えたとき、必然的にそれを否定する別の観念の可能性が生まれる。それは「矛盾」していても、「無関係」ではない。信念とは、この“どちらか”を「より真実らしく見せる」ための行為にすぎない。信念の本質とは、生命力（vitality）の可能性に対して、否定や制限を課すことである。つまり、何かを「信じる」ということ自体が、集中と訓練の産物であり、ある仮説や信条（faith）を採用することで、それに含まれないものを「問題にせずに済むようにする」構造なのだ。多くの場合、そうした信念は、拒絶したものを正当化するための“欺瞞的な理性”として働く。「真実」とは、決して“公式”や“定式（formula）”によって得られるものではない。
 
 The centre of belief is love for one's self, projecting environment for fulfilment but allowing its
 distortion to simulate denial, an ambition to become ulterior to self-desire, but you cannot get further
