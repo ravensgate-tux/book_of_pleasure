@@ -103,15 +103,7 @@ Neither-Neither ＝ 天才的認識の触媒
 
 天才の主要因とは、「I（自我）」の実現である。それは、ある種の感情によって可能になる──その感情とは、信念を伴わずに知識を自由に関連づけることを許すという、道徳に反する（immoral）性質を持つ。その感情の前提は、「I am（私はある）」や「I am not（私はない）」といった認識が不在であり、ぼんやりとした心の状態が“信じている”という状態になることだ。この感情のもっとも優れた状態こそ、ここで何度も語っている──「ニーチャー＝ニーチャー（Neither-Neither）」である。すなわち、「自由なるI」＝空気のような意識存在なのだ。
 
-You remember in your youth the thought "that this world is a curious place" in the emotion when
-you felt "why" as to whether this life is a reasonable development? What was the cause of this and of
-your summarily dismissing it from your mind? Again the feeling that the most commonplace object is
-magnificently strange and the vague emotion of co-relation between the incompatible (exhaustive
-arguments often see this, but always excuse it); the curiosity and shock with a more intimate
-association with the wonders of creation. What is it that prevents you following investigation into
-"what exactly is surprise," etc.? What is the cause of your believing more in God than a dog-fight?
-Yet you fear dogs more than God! Where is the difference between yourself choked with disquieting
-piety, and the innocence of a babe? Perhaps in these is the cause of ignorance.
+あなたはかつて若い頃、「この世界はなんて不思議な場所なんだろう」と感じたことがあったはずだ。そして「この人生は本当に納得のいく進化の結果なのだろうか？」と、“なぜ？”という感情に満たされたことも。ではなぜ、あなたはその問いをすぐに心から追い払ってしまったのか？日常の、なんでもないモノが突如として壮麗な異物に見えた経験──あるいは、共存し得ないもの同士にふと感じた“つながり”の感覚──そんなあいまいな驚きは、深い議論においてはときおり表れるが、たいていは「言い訳」として軽く処理されてしまう。創造の神秘と親密になったときに感じる好奇心とショック──それを深く追求しようとしないのはなぜだろう？たとえば「“驚き”とはそもそも何なのか？」という問いに、なぜあなたは真剣に取り組まないのか？あなたが神よりも犬の喧嘩を信じない理由は何か？だがあなたは、神よりも犬を恐れているのだ。神に対する敬虔な不安に首を絞められている今のあなたと、あの無垢な赤ん坊との違いは何なのだろう？──おそらく、こうした問いの中にこそ、「無知」とは何かの核心がある。
 
 Belief is the fall from the Absolute. What are you going to believe? Truth seeks its own negation.
 Different aspects are not the truth, nor are they necessary to truth. Of its emanations which are you to
