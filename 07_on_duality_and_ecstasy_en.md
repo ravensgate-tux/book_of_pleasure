@@ -190,13 +190,16 @@ external influences contained, do not affect. When that giving up all belief, re
 then is there purity of vision, innocence of touch, ergo, self-love. Verily, verily men are born, suffer
 and die through their belief. Ejaculation is death. Self-love is preservation and life.
 
-- 14: It the "Neither-Neither" emanates tetragrammaton of relatives, the sexes of which
+>14: It the "Neither-Neither" emanates tetragrammaton of relatives, the sexes of which
 are evolved through their cruciform reflection and are elusive to identity. In their
 XXXX they produce unity XXXXX XXXXX conception. Ego generating by subdivision
 they embrace eternity, in their manifold ramifications is law.
-- 15: i.e. his rainbow.
-- 16: Chapter on self-attraction omitted.
-- 17: This is the test. The one who doubt would naturally submit himself.
+
+>15: i.e. his rainbow.
+
+>16: Chapter on self-attraction omitted.
+ 
+>17: This is the test. The one who doubt would naturally submit himself.
 
 Man to invoke pleasure in his choice, subtracts from desire, his desire is partial desire, becomes subduple
 (conflict), never is his energy full. Having no true focus, he is deceived in his strength and
