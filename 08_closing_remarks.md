@@ -32,38 +32,16 @@
 
 **内なる影を投影する**
 
-The Ego not being totally oblivious, let him retain only and visualise the Sigil form, it is his chalice,
-the means of vacuity and incarnation. By the deliberation of an analogous emotion at that time, he
-deputises the law (reaction). Miraculous is he, balance not known in this world imitated (attained).
-All other consciousness annulled with safety, the vehicle strong enough for the ecstasy, he is beyond
-hurt. Now let him imagine an union takes place between himself (the mystic union of the Ego and
-Absolute). The nectar emitted, let him drink slowly, again and again22. After this astonishing
-experience his passion is incomparable, there is nothing in the world he will desire: unless he wills.
-That is why people do not understand me. The ecstasy in its emotion is omnigenous. Know it as the
-nectar of life, the Syllubub of Sun and Moon. Verily he steals the fire from Heaven: the greatest act
-of bravery in the world. Deliberation egotized, except in the refraction 23 of the ecstasy, is exposure
-and death, becoming a presiding obsession, control having been given to a prior experience and is
-over-conscious of that through it momentarily finding freedom from its native law; thus generating
-double personality (Insanity).
+自我（Ego）が完全に忘却されていないときは、ただシジルの形を保持し、視覚化せよ。それは杯（chalice）であり、「空」への到達と具現化の手段である。その瞬間に、同質の感情を意図的に想起することで、彼は法（＝反応）を代行する者となる。このとき、彼はこの世界では知られざる均衡を体現し、他のすべての意識が安全に消去される中で、恍惚のための「器」として十分に強固な存在となる。彼はもはや傷つかない。そして今、彼は次のように想起すべきである──自我と絶対者の神秘的な合一が起きるのだと。そのとき放たれる「蜜（ネクター）」を、ゆっくり、何度も味わえ。この驚異的な体験の後、彼の情熱は他の何者とも比べがたくなり、彼は「望まない限り」何ものも欲することはなくなる──ゆえに、人々は私のことを理解できないのだ。その恍惚の感情は**万象生成の源（omni-generative）**である。これを「生命の蜜」と知れ──太陽と月の交わり（Syllubub）。まことに、彼は天から火を盗んだ──世界で最も勇敢な行為である。ただし、恍惚の屈折（refraction）を除くあらゆる意識的な熟慮（deliberation egotized）は危険である。それは過去の経験に主導権を明け渡し、「一時的な自由」の中に意識が閉じ込められた結果として、二重人格（＝狂気）を生成する。
 
-- 22: If it becomes physical, let him imagine another's body, he has that sigil or its
-emergency. This, although not his original purpose, he will and exceedingly amiable.
-- 23: Laughter in this case.
+>22:「蜜（ネクター）」が身体的現象として感じられる場合、そのときは他者の身体を想像せよ──その身体には、彼が創造したシジルが宿っているか、緊急的に投影されたものとみなされる。それがもともとの目的ではなかったとしても、彼はそれを「意志する」ことになる。そしてそれはきわめて愛すべきものとなる（exceedingly amiable）。
+>
+>23:「恍惚の屈折（refraction）」とは、この文脈においては、笑い（laughter）を指す。つまり恍惚が極まると、言葉を超えた「無意味で深い笑い」が生まれ、これが「分裂を超えて統合へ至る回路」**となる。
+>
+>24:「自由な信念（free belief）」が多いほど、すべては可能になる。欲望をひとつの感覚に局在化させることで、その感覚器官が**超越的ヴィークル（乗り物）**となる。
+たとえば耳を使えば、あらゆる存在（動物・人間など）の声とハーモニーが一体となった「この世で最も超越的な音楽」が聴こえる──他の感覚でも同様の応用が可能である。
 
-By these means there is no desire beyond fulfilment, no accomplishment too wonderful, depending
-on the amount of free belief 24.
-
-- 24: It may be done by localizing desire to one sense, hence by this formula using the
-ear as the vehicle, one hears the most transcendental music ever conceived, being the
-voices and harmony of every conceivable animal and human existence and so with
-each sense.
-
-Men of small pleasure and enterprise, oblivious of your purpose, fault-finding, avaricious, sinful, who
-cannot live without women or enjoy without pain, fearsome, inconstant, diseased, and withered,
-dependent, cruel, deceived, and liars, the worst of men! Know, Oh, Lord, Oh beloved Self, I have
-now told you of that most secret tavern where passion goes when youth has gone, where any man
-may drink of the nectar of all-beneficent and gratuitous ecstasy. The most pleasurable nourishment
-that harms no one.
+快楽も冒険も乏しい小心者たちよ──己の目的すら忘れ、あら探しに明け暮れ、強欲で、罪深く、女なしでは生きられず、苦痛なしでは快楽を感じられない。臆病で、移り気で、病んで、干からび、他者に依存し、残酷で、騙されやすく、そして嘘つき──最も堕落した人間たちよ！だが、聞くがいい。ああ、我が主よ、我が愛しき〈自己〉よ──私はいま、**「あの最も秘密の酒場」**のことを語ったのだ。そこは、情熱が青春の終わりとともに向かう場所。誰であれ、その扉を叩きさえすれば、無償にして万人に恩恵をもたらす恍惚の蜜（ネクター）を味わえる。それは、誰ひとり傷つけることのない、もっとも歓喜に満ちた滋養なのである。
 
 **Note on the Difference of Magical Obsession (Genius) and Insanity.**
 
