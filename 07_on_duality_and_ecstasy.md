@@ -6,14 +6,7 @@
 
 🇯🇵 自己愛を語る前に
 
-Let us be honest! Thou art "that," supreme in freedom, most desirable, beyond desire, untouched by
-the six stupifiers. The sexuality labours, so Death may harvest by desire. The elusive fancies of the
-senses are dangerous, because of the righteousness you have learned to obey and control them by.
-Hell-fire burns because you "conceived"; and will cease to hurt when you identify the Ego with all
-the possibilities of its qualities by believing as the "Neither-Neither" process. You are fire yet you are
-scorched! Because you have "willed" belief (differently or not makes no difference); the cycle of
-belief goes on and always obliges, so one day you must believe differently and the fire will no longer
-hurt- you are saved? There are other means of hurting you?
+正直になろう。あなたは「それ」──最高の自由の中にある、最も望ましく、欲望を超えた存在であり、「六つの迷妄（stupifiers）」にすら触れられない。性のエネルギーは働きつづけ、欲望によって死が刈り取ろうとする。感覚が生み出す幻想は危険だ。それは、あなたが正しさ（righteousness）を学び、それに従い、抑えようとしてきたからだ。地獄の炎が燃えるのは、あなたが「概念化」したからだ。そして、その炎が痛まなくなるのは、あなたがエゴ（自我）をすべての可能性と同一視できたとき──「ニーチャー＝ニーチャー（Neither-Neither）」の実践によって信じたとき、である。あなたは炎でありながら、炎に焼かれている──なぜか？それはあなたが「信じようとした」からだ（たとえ違うかたちであっても、それは変わらない）。信念の循環は止まらず、つねにあなたを巻き込む。だからいつか、あなたは違う信念を抱くことになるだろう。そのとき、炎はあなたを焼かなくなる──救われた、というわけだ。──でも、他の痛み方もあるのでは？
 
 In that state which is not, there is no consciousness in any sense that thou art "that" (Kia), which is
 superb, beyond the range of definition: there is no temptation of freedom, "it" was not the cause of
