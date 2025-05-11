@@ -39,22 +39,13 @@
 
 科学的事実？そんなものは存在しない。なぜなら、あらゆる“事実”は、その“反対”をもまた“等しい事実”として内包しているからだ。それこそが“事実”なのだ。ならば、なぜ「何かを証明しよう」などと思うのか？“最終的な真実”を証明しようとするその希望こそが「死」なのだ。ではなぜ、“欲望”を欺こうとするのか？あなたは数学によって太陽までの距離を証明した。──で、次は何をするつもりだ？太陽の効率を改善するつもりか？自然は、あなたの真実に対する“否定衝動”そのものとして、すぐにでも（同じく数学を使って）こう証明するだろう。「太陽など、存在しない。」あるいは、もし望むなら「太陽は、以前の予測より何百万マイルも遠く、あるいは近い。」──なんと卓越した“思索者”だろう！この「事実」たちは、蝶も、シラミも、昆虫たちも、とっくに知っている──もしかすると、あなた自身も？あなたの感覚と、ハエの感覚と、どちらが真実に近いのか？いずれ、あなたは彼らの“視野”を、思考を、知恵を採用するだろう。かつて、あなたもそうだった。いまも、そうかもしれない。まだ目覚めていないだけなのだ。そしてまた、そうなるだろう──力を持って。なんと素晴らしい「進歩」だろう！なんと見事な「業績」だろう！なんと容赦のない「進歩」だろう！その“進歩”とやらがもたらしたものを、そして、科学の“利便性”によってあなたが何を得たのか──よく見極めることだ。
 
-A thought for perspective-you are always what you most wish-the prospective! Your desire is to live
-according to your desire, and this you are always realizing! Most noble sentiment!-you are "it"
-already-"the satisfied"-"the desireless"-"the real thing"! You are drunk with it.
+ひとつ、遠近法的な考察をしよう。あなたは常に──“もっとも望んだもの”である。あなたがなりたかった「未来の自分」。その“展望（prospective）”こそ、今のあなたなのだ。あなたの願いは、「願いに従って生きること」であり──実際、あなたは常にそれを実現している。なんと高貴な感情だろうか！あなたはすでに──「それ」なのだ。満たされている者、欲のない者、実在する者──あなたは、すでにそれに酔いしれている。幻影など存在しない。あるのは“意識”だけだ。
 
-There is no illusion but consciousness! This consciousness is ever the smiling monument
-commemorating "Whether you ever really enjoyed Life"!
+その意識は、いつも笑みを浮かべた記念碑である。「あなたが“人生を本当に楽しんだかどうか”」を記念する、唯一の存在だ。
 
-The God of the "Will" is the command to obey, its Justice everyone fears-it is a Sword-your desert for
-obedience! "Will" is the command to believe, your will is what you have believed actively willing the
-belief for you! You think when "it" wishes! "Will" is complication, the means of a means. Call this
-will free or not-beyond will and belief is Self-love. I know of no better name. It is free to believe
-what it desires. You are free to believe in nothing related to belief. The "Truth" is not difficult to
-understand! The truth has no will-will has no truth! Truth is "will" never believed-it has no truth!
-"Could be"-is the immediate certainty! This haunting Sphinx teaches us the value of the "will to
-anything"? Then there is no graver risk than Absolute Knowledge-if little is dangerous-what about
-Omniscience? The Almighty power has no accessories!
+「意志（Will）」の神は、「服従せよ」という命令そのものであり、その“正義”は万人が恐れる。意志とは剣──服従した者への褒賞（または罰）である。「意志」とは、信じるための命令にすぎない。あなたの「意志」とは、“あなたのために信じることを信じるよう命じた何か”なのだ。あなたが「考える」とき、それは──“それ”がそうしたいと思ったとき。意志とは、手段のための手段。「複雑性」であり、「自由」か否かは問題ではない。意志と信念を超えたところに、“自己愛（Self-love）”がある。私はこれに勝る名前を知らない。
+
+それは、望むものを信じる自由であり──何の信仰とも関係ないものを信じる自由だ。「真実」は、理解するのが難しいものではない。なぜなら──「真実」には意志がなく、「意志」には真実がないからだ。「真実」とは、“信じられなかった意志”そのものなのだ。それには真実がない。でも──“かもしれない”が、唯一の確かさなのだ。このつきまとうスフィンクスは、「あらゆるものへの意志」の価値を教えてくれる。ならば──「絶対的な知識」ほど危険なものはない。少しの知識が危険なら、全知（Omniscience）はいかほどか？全能の力（Almighty Power）に、付属品など必要ない。
 
 Science is the accursed doubt of the possible, yea, of what does exist! You cannot conceive an
 impossibility, nothing is impossible, you are the impossible! Doubt is delay-time-but how it punishes!
