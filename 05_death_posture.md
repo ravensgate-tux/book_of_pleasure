@@ -55,15 +55,9 @@ Spareの思想において、信念とは固定されたものではなく、否
 死の姿勢（Death Posture）とは、“避けがたいもの”を加速させる手段である。それによって──私たちは「執着による果てしない遅延」から逃れられる。エゴ（自我）は、烈風に舞う一枚の葉のように、吹き飛ばされる。そして、決して確定しない時間の中で、「いまにも起こりそうだったこと」が、ついに実現される。これまで隠れていた自明なこと（self-evidentなこと）が、もはや曖昧ではなくなる。人は、自らの意志で「自分を喜ばせる」ことを知る。これを「信仰を否定する唯一の道」として、生きて体得せよ。意識の二元性の終焉こそが、それである。信念（Belief）とは──「肯定された死の状態」である。それ以外のすべては、ただの“眠り”──否定の状態にすぎない。死の姿勢とは、我々が信じていたものすべての「死体」であり、やがて我々は、“目覚めた死体”として再び立ち上がるのだ。エゴは法則に従属する限り、眠りと死という“惰性”を求めて彷徨い続ける。死の姿勢を知れ。それは“法則を無効化する”という現実であり、二元性からの昇天（Ascension）である。その日、涙なき嘆きのなかで──宇宙は灰に還る。──だが彼は、その“審判”を逃れる。そして「私」は？なんという不幸な存在なのだろう！──だがその自由の中には、もはや何の必然性(necessitation）もない。私はこれ以上、何を言えるだろうか？むしろ──私は多くの罪を犯すだろう。だが、私自身を妥協するよりはマシだ。
 「予備的な練習（Preliminary Exercises）」は無数にある。──それは罪の数ほど存在する。それらはそれ自体では無意味だが、最終手段を指し示す“徴”ではある。死の姿勢とは、すべての観念（＝罪）を「いずれでもない」に還元し、欲望が「自己を喜ばせること」によって満たされる地点に至ること。この方法によって──そしてこれによってのみ、信念の惰性（inertia of belief）は消失し、新しいセクシュアリティは復元され、原初的な「自己愛」は、自由のうちに回復される。
 
-The primordial vacuity (or belief) is not by the exercise of focussing the mind on a negation of all
-conceivable things, the identity of unity and duality, chaos and uniformity, etc., etc., but by doing it
-now, not eventually. Percieve, and feel without the necessity of an opposite, but by its relative.
-Percieve light without shadow by its own colour as contrast, through evoking the emotion of laughter
-at the time of ecstasy in union, and by practice till that emotion is untiring and subtle. The law or
-reaction is defeated by inclusion. Were he to enjoy an hundred pleasures at a time, however much his
-ecstasy, he does not lose, but great increase takes place. Let him practise it daily, accordingly, till he
-arrives at the centre of desire. He has imitated the great purpose. Like this, all emotions should find
-equipoise at the time of emanation, till they become one. 
+「原初の空（vacuity）」──あるいは「信念の根源」とも言えるそれは、あらゆる観念的対象（UnityとDuality、ChaosとUniformityなど）を否定することで得られるものではない。
+それは、「いま、この瞬間にやること」だ。「いつか、あとで」ではない。“反対物”を通さずに──ただ知覚し、感じよ。影を通さずに、「光を、光自身の色として」見るように。──そのためには、
+合一（ユニオン）のエクスタシーの最中に「笑い」という感情を呼び起こすこと。それを何度も練習し、その笑いが疲れず、微細に続くまで高めよ。このようにすれば、あらゆる反応（リアクション）の法則は無力化される。「含むこと」によって、それを越えるのだ。もし人が100の快楽を同時に味わったとしても、そのエクスタシーがどれほど高まったとしても──彼は何も失うことはない。むしろ、そこにこそ大きな増加（great increase）が起こる。よって、彼はこれを日々の実践として行うべきだ。──そうして欲望の中心（the centre of desire）に至ること。このとき、彼は「偉大なる意志（Great Purpose）」を模倣したことになる。このようにして、あらゆる感情は“放出（emanation）”の瞬間において均衡（equipoise）を保ち、やがて“ひとつ”になるべきなのだ。
 
 Thus by hindering belief and semen from
 conception, they become simple and cosmic. By its illumination there is nothing that cannot be
