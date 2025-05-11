@@ -18,7 +18,7 @@ the governing fear. Yes! What you have ordained in your religiousness, is your v
 though it be! The prospect is not pleasant; you have taught yourself! It has become inborn and your
 body is sensitive.
 
-  0: That God is always in Heaven or that the Almighty inconceivable emanates its
+> 0: That God is always in Heaven or that the Almighty inconceivable emanates its
 conception or negation-commits suicide, etc.
 
 Some praise the idea of Faith. To believe that they are Gods (or anything else) would make them
