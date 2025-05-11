@@ -24,6 +24,26 @@
 Neither-Neither ＝ 天才的認識の触媒
 　「ニーチャー＝ニーチャー」とは、あらゆる前提や信念を中断し、純粋な観察と直観の回路を開くための状態である。天才とはこの状態に“慣れ親しんだ者”なのだ。
 
+注釈：信じたいと願うこと vs 本当に信じていること
+Spareは、魔術における「信じる力（belief）」を**“形式的な願望”と“有機的な信念”**に分けています。
+
+「信じたい」という願いは、しばしば現実には根付かない。
+→ それは既存の「信じられない」という有機信念に負けるため。
+
+「信じたい」と意識的に思っている時点で、
+　すでにそれは本物ではない。
+→ 真の信念は忘却の中で、形を通じて無意識に届くもの。
+
+Spareが提唱する**「シジル」とは、
+　この「願望」を無意識に送りこみ、育てるための記号的ツール**である。
+
+つまりこれは、
+「信じるな、ただ忘れろ」
+「願いを形にして、意識の外に追いやれ」
+という、ケイオスマジックの核心に迫る教義なのです。
+
+
+
 ---
 
 🇯🇵 魔術の儀式と教義──完全版
@@ -110,20 +130,9 @@ Neither-Neither ＝ 天才的認識の触媒
 
 だが私たちは、「自由に信じること」はできない。──なぜなら、私たちの中にはまず消尽されねばならない相反する観念があるからだ。シジル（Sigils）とは、信じる技法である。私が考案したこの技術は、信念を有機的なものに変えるものだ。言い換えれば、それは「本物の信念」を成立させる方法である。
 
-When by the wish to believe- it is of the necessity incompatible with an existing belief and is not
-realized through the inhibition of the organic belief- the negation of the wish, faith moves no
-mountains, not till it has removed itself. Supposing I wish to be great (is not counting that I am), to
-have "faith" and believe that I am, does not make me great- even were I to keep up the pretence to the
-end . . . . it being ceremonial insincerity, the affirmation of my incapacity. I am incapable, because
-that is the true belief, and organic. To believe differently is but affectation. Therefore the imagination
-or "faith" that I am great, is a superficial belief. The reaction and denial, caused by the troublesome
-effervescence of the organic incapacity. Denial or faith does not change or annihilate it, but is its
-reinforcement and preservation. Therefore belief, to be true, must be organic and sub-conscious. The
-desire to be great can only become organic at a time of vacuity, and by giving it (Sigil) form. When
-conscious of the Sigil form (any time but the Magical) it should be repressed, a deliberate striving to
-forget it, by this it is active and dominates at the unconscious period, its form nourishes and allows it
-to become attached to the sub-consciousness and become organic, that accomplished, is its reality
-and realization. He becomes his concept of greatness.
+「信じたい」という願望があっても、それがすでに存在する有機的な信念（＝根深い前提）と両立しないとき、その願いは現実にならない。つまり──「信じたいという願い」は、そのままでは“信じられない”という有機的信念によって抑圧され、機能しないのだ。信じることが山を動かす、などというのは、その「信じるという意志」がまず自分自身を取り除いてからでないと無理だ。たとえば、私が「偉大な存在になりたい」と願ったとする。（ここで「すでに自分がそうである」という前提は除いて考える。）このとき「信じるぞ、私は偉大だ！」と信仰的に自分に言い聞かせることは、決して私を偉大にはしない。たとえそれを最後まで“演じきった”としてもだ──それは儀式的な不誠実さであり、自分の無力さを逆に肯定することになるからだ。「自分は無力だ」──これが真の信念であり、しかもそれは無意識のレベル（organic）で根を張っている。そこから目を逸らして「違う！」と言うのは、単なる見せかけの否定（affectation）に過ぎない。「私は偉大である」という信仰（faith）やイメージ（imagination）は、ただの表面的な信念にすぎない。無意識に染みついた「無力さ」が発酵し、それを打ち消そうとする反応（否認）によってますますその“有機的な無力感”は強化される。
+
+つまり──否認も信仰も、それを変えることはできない。むしろそれらは、既存の信念の保存装置なのだ。だからこそ、「本物の信念」とは、意識の表層ではなく、無意識（sub-conscious）に根づいたものでなければならない。「偉大になりたい」という願望が、本当に“有機的信念”になるためには──内的空白（vacuity）の瞬間に、それを“シジル”という形に変えることが必要なのだ。いったんそれを作ったならば──「魔術的タイミング」以外でそのシジルの形を思い出してはならない。意図的に忘れようとすること（＝忘却への努力）が、そのシジルを無意識へと“流し込む”。するとそのシジル（形）は、無意識の奥底で成長・養分化され、ついには有機的に結びつく。その状態に至ったとき──それは「信念」として現実化される。そして、その者は「偉大な存在」という概念そのものになるのである。
 
 So belief becomes true and vital by striving against it in consciousness and by giving it form. Not by
 the striving of faith. Belief exhausts itself by confession and non-resistance, i.e., consciousness.
