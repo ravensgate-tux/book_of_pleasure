@@ -10,11 +10,9 @@
 
 「私は在る（I am）」という想念があれば、文法的必然として「私は在らず（I am not）」という観念が続くように、この苦しみの世界では、昼のあとには夜が来る。痛みを痛みと認識することは、快楽という観念を前提にしており、この構造はあらゆる観念において同様である。この二元性のもとで、彼は常に笑うことを忘れず、すべてを認め、何ものにも抗わずにいれば──そこに葛藤も、不一致も、強制も存在しなくなるのだ。
 
-**Transgressing Conception by a Lucid Symbolism.**
+**明晰なる象徴によって、概念を超える**
 
-Man implies Woman, I transcend these by the Hermaphrodite, this again implies a Eunuch6; all these
-conditions I transcend by a "Neither" principle, yet although a "Neither" is vague, the fact of
-conceiving it proves its palpability, and again implies a different "Neither."
+「男」は「女」を含意する。だが私はそれらを──「両性具有」によって超える。「両性具有」はさらに──「去勢者（Eunuch）」を含意する。そして私は──それらすべてを超えて、「いずれでもない（Neither）」という原理に至る。たとえこの「Neither」が曖昧であったとしても、その概念を想起することができるという事実は、それが触れうるもの（palpable）であることを証明している。だとすれば──そこには、さらに別の「いずれでもない」が存在するはずだ。
 
 But the "Neither-Neither" principle of those two, is the state where the mind has passed beyond
 conception, it cannot be balanced, since it implies only itself. The "I" principle has reached the "Does
