@@ -20,7 +20,7 @@
 </div>
 
 <div align="center">
-#### 画像出典：『The Book of Pleasure』Secret Fire Publishing版 表紙より引用---
+画像出典：『The Book of Pleasure』Secret Fire Publishing版 表紙より引用
 </div>
 
 ---
