@@ -8,52 +8,26 @@
 
 正直になろう。あなたは「それ」──最高の自由の中にある、最も望ましく、欲望を超えた存在であり、「六つの迷妄（stupifiers）」にすら触れられない。性のエネルギーは働きつづけ、欲望によって死が刈り取ろうとする。感覚が生み出す幻想は危険だ。それは、あなたが正しさ（righteousness）を学び、それに従い、抑えようとしてきたからだ。地獄の炎が燃えるのは、あなたが「概念化」したからだ。そして、その炎が痛まなくなるのは、あなたがエゴ（自我）をすべての可能性と同一視できたとき──「ニーチャー＝ニーチャー（Neither-Neither）」の実践によって信じたとき、である。あなたは炎でありながら、炎に焼かれている──なぜか？それはあなたが「信じようとした」からだ（たとえ違うかたちであっても、それは変わらない）。信念の循環は止まらず、つねにあなたを巻き込む。だからいつか、あなたは違う信念を抱くことになるだろう。そのとき、炎はあなたを焼かなくなる──救われた、というわけだ。──でも、他の痛み方もあるのでは？
 
-In that state which is not, there is no consciousness in any sense that thou art "that" (Kia), which is
-superb, beyond the range of definition: there is no temptation of freedom, "it" was not the cause of
-evolution. Hence "it" is beyond time, consciousness or unconsciousness, everything or nothingness,
-etc.; this I know through the "Neither-Neither" which is automatically beyond every conception, ever
-free in every sense. Perhaps "it" may not be obscure by continual afterthought and vaguely felt
-through the hand of innocence- but whoever understands such simple meanings? "It" is never
-perceived, being the imperceptible Ecstasy of the "Neither-Neither"- ever present but hidden by
-exhaustion through the cycle of Unity. The certainty of consciousness is always the uncertainty of the
-perceived or experienced in whatever state it may be, the constant doubt spelling fear, pain, decay,
-and the like- the cause of evolution, the eternal incompletion.
+「存在しない」その状態において、あなたが“KIA”であるという自覚──それすらない。KIAとは、荘厳でありながら、いかなる定義の範囲も超えた存在。そこには「自由への誘惑」すら存在しない。
+KIAは進化の原因でもなければ、時間にも属さない。意識や無意識、「すべて」や「無」──そうしたものを超えている。わたしはこれを、「ニーチャー＝ニーチャー（Neither-Neither）」の働きを通して知った。それはあらゆる概念を自動的に超えており、つねに、あらゆる意味において自由である。あるいは、このKIAは、「無垢な手を通して、かすかに感じ取られることで」曖昧な余韻のなかに現れるかもしれない。──だが、そんな単純な真理を理解できる者が、いったいどれほどいるだろうか？KIAは決して知覚されない。それは「ニーチャー＝ニーチャー」がもたらす、知覚不可能なエクスタシーである。つねに「ここ」に在りながら、「一なるもの（Unity）」の循環によって疲労に覆われ、見えなくなってしまっている。意識の確かさとは、つねに「知覚されたもの」「経験されたもの」の不確かさである。そこにあるのは、絶えざる疑い──恐怖、痛み、腐敗、そして進化を引き起こす原因としての、永遠なる「未完成」だ。
 
-O, desire, listen! In point of virulence spiritual desire is as fatal as the sensuous. Aspiration towards a
-"supreme" is a network of deadly desires because of cowardice within, ergo, some unsatisfied wisdom
+おお、欲望よ──聞け。精神的な欲望も、肉体的な欲望と同じくらい猛毒である。「崇高なるもの」への憧れ──それは、内なる臆病さが編み上げた“致命的な欲望の網”である。つまりそれは、満たされない知恵（不全の賢さ）が生み出したものだ。
 
-awaiting exploitation to suffer its evolutions. There is no final wisdom- there is no final desire. How
-can anything end? Has to-day ever ended? These things are endlessness!
-A person desires things of this world- but where is the difference of desiring the "Supreme Bliss"?
-Which is the more selfish? Which is nearer you? Which pleases the Creator more? Are you certain of
-the Creator's will and are you sure of your own desire? Are you the Creator or just yourself, as you
-fondly imagine your contents?
-All these desires, however mighty, you will one day incarnate- yea, photograph. These things already
-exist- very soon you will have spiritual photographs (unfaked) but not by the camera you use at
-present. The pioneer is ever the old fool. An afterthought: some spirits are already photographed- the
-microbes.
+欲望は──“展開（進化）される”のを待ち続け、そのたびに、苦しみを生み出す。最終的な「知恵」など存在しない。最終的な「欲望」など、存在しない。いったい、何が終わるというのか？「今日（きょう）」は終わったか？それらはすべて、“終わりなきもの”なのだ。誰かが「この世のもの」を欲する──では、「至高のエクスタシー（Supreme Bliss）」を欲するのは、どう違うのか？どちらがより利己的なのか？どちらが、あなたに近いのか？どちらが“創造主”を喜ばせるのか？あなたは「創造主の意志」について確信しているのか？そして、自分の欲望についても確信しているのか？あなたは創造主なのか？　それとも、自分の“中身”を勘違いしてるだけなのか？
 
-Are you ever free of desideratum? Belief is eternal desire!
+これらすべての欲望は、たとえどれほど壮大でも、やがてあなたの中に「具現化」され、写真のように焼きつけられる（incarnate / photograph）だろう。それらはすでに存在している。もうすぐ、スピリチュアルな「写真」（偽りなき記録）が手に入る。──ただし、それはいま君が使っているカメラではない。最初に進む者は、いつだって“老いた愚者”だ。（あとがき：ある霊はすでに撮影されている──それが「微生物（microbes）」というわけだ。）
 
-Desire is its own cruelty, the fettering of the hand to labour in some world unknown; nothing is
-always dead and no thought dies, the master becomes the slave- the position is alternate; you have
-long believed this, it is in the flesh of your generations with the most merciless Judge! The scorn of
-all your reforms or the inversion of your values!
+**あなたは、〈望み（desideratum）〉から本当に自由になれたことがあるか？信念とは、永遠に続く欲望そのものだ！**
 
-This constant curse and blasphemy- is not the relief more in the knowledge of the nascent
-unrelenting taskmaster?
+欲望とは、それ自体が残酷さである。──それは、知らぬ世界で労働せよと手を縛る苦役の鎖。「無」はつねに“死”んでおらず、いかなる思考も完全には“死なない”。支配者は奴隷に、奴隷は支配者に──その立場は、交互に入れ替わる。あなたはずっと、そう信じてきた。それは世代の肉体に刻み込まれており、最も容赦なき裁き主とともに存在している。
 
-Are not our bodies all smeared with its blood? Has not the world ever been bloody? Are not our
-pleasures but rest to drink the blood of slaughter? O, determined Liars, ye know not yet the lie, it
-may be Truth!
+あなたの改革や価値転倒のすべてを嘲笑うもの──それが欲望だ。この呪いと冒涜の連続──だがむしろ、それを課す「新たな冷酷な主（taskmaster）」の存在を知ることが、唯一の救いではないのか？私たちの肉体はすでに、その血にまみれているではないか。この世界は常に血に染まってきた。私たちの快楽とは、屠殺の血を飲むための休息にすぎないのではないか？おお、確信に満ちた嘘つきたちよ──あなたたちはまだ“嘘”を知らぬ。その嘘は、もしかしたら真実かもしれないのに。
 
-The Ego is desire, so everything is ultimately desired and undesirable, desire is ever a preliminary
-forecast of terrible dissatisfaction hidden by its ever-present vainglory. The millenium will come and
-quickly go. Men will be greater than the Gods they ever conceived- there will be greater
-dissatisfaction. You are ever what you were but you may be so in a different form!
+エゴとは欲望そのものである。ゆえに、あらゆるものは最終的に「望まれる」と同時に「望ましくなくなる」。欲望とはつねに、恐ろしい不満足の予兆である──ただし、それはいつも**うぬぼれ（虚栄）**によって覆い隠されている。千年王国がやって来る。だがすぐに去る。人は、これまで思い描いてきた神々よりも偉大になるだろう。だがそこには、さらに大いなる不満足が待っている。
 
-A person or a nation, however vain or content, falls immediately into unknown and inevitable desire,
-consuming him little by little through those conditions- any condition!
+>あなたは、常に「かつてのあなた」だ。　──ただし、別のかたちで。
+
+どれほど虚栄に満ち、満足しているように見える個人や国家であっても、ただちに──未知にして不可避な「欲望」へと堕ちていく。その「欲望」は、あらゆる条件を通じて、人を少しずつ──消費してゆく。
 
 The mind becomes firm in desire by desire as devotion, but when realized is it then eternally
 desirable? (or even for a period of a million years). In Heaven shall be fettered thy foot! Therefore
