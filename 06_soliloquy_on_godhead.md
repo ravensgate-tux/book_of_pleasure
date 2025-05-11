@@ -30,7 +30,7 @@
 
 ああ、愚かな人間よ。自由に輝くものをこそ、崇めよ。死が近づいたとき──神への信仰も、女への欲望も、あなたを救ってはくれない。朽ちて枯れるとき、その体が嫌悪すべき物となったとき、それらは何の役にも立たない。そしてまた──現実を知ってしまったとき、知識や慈悲もまた、意味を失うのだ。“自己の剣”を抜け。「全能の神」の観念は、常に斬り捨てられるべきだ。そして、“義”とは何かを問うのだ。
 
-- 12: And does kill when feared.
+>12: 恐れた瞬間、それは実際に命を奪う。
 
 Whosoever shall study his true nature a little, him does the "self" investigate with his extraordinary
 conduct. He can compel anything without offending. As the tendency of the most lustful ceases
@@ -41,8 +41,9 @@ cynosure of women. When the believing principle is devoid of faith, as sterile o
 God - he is indestructible. Only when there is no fear in any form is there realisation of identity with
 reality (freedom). For them there is no danger in negligence, there being no discrimination. For him
 who is conscious of the slightest differentiation there is fear. So long as there is perception of selfreproach
-or conscience, there is pain germinating: there is no freedom. He who believes anything he
-perceives or imagines, falls into sin. By believing without feeling perturbation, forgetting ideas of
+or conscience, there is pain germinating: there is no freedom. 
+
+He who believes anything he perceives or imagines, falls into sin. By believing without feeling perturbation, forgetting ideas of
 external and internal, he regards everything as self, and is the consciousness of non-resistance, has no
 horizon: he is free. On seeing the star-lit eyes and rosebud mouths, the breasts and loins of beautiful
 women, you become lovingly attached, but if you fear, consider constantly that they are merely the
