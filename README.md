@@ -14,8 +14,10 @@
 
 ---
 
-<div align="center">
+
+<div style="display: flex; gap: 10px;">
  <img src="spare_photo_relaxed.png" width="400">
+ <img src="death_posture.jpg" width="400">
 </div>
 
 <div align="center">
