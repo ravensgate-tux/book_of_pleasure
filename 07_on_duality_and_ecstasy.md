@@ -213,35 +213,62 @@ KIAは進化の原因でもなければ、時間にも属さない。意識や�
 
 >幸福とは“知恵”そのものであり、単純なものに“二元性”は存在しない。
 
-**The Doctrine of Eternal Self-Love.**
+**自己愛──永遠なる法**
 
-Now self-love is explained. It is the completion of belief. The "self" is the "Neither-Neither," nothing
-omitted, indissoluble, beyond prepossession; dissociation of conception by its own invincible love is
-the only true, safe, and free. The desire, will, and belief ceasing to exist as separate. Attraction,
-repulsion, and control self contained, they become the original unity, inert in pleasure. There is no
-duality. There is no desire for unity. At that time, it (the dual principle) rests in its unmodified state.
-The belief no longer subject to conception by conceiving "self" as such by loving. At other times, it14
-creates a centre, becomes its environment, identified with its ramifications, conception created,
-subjection to law and the insatiable desire for unity, inasmuch as the duality is unity. Servitude to
-law is the hatred of Heaven. Self-love only is the eternal all pleasing, by meditation on this effulgent
-self which is mystic joyousness. At that time of bliss, he is punctual to his imagination, in that day
-what happiness is his! A lusty innocent, beyond sin, without hurt! Balanced by an emotion, a
-refraction of his ecstasy is all that he is conscious of as external.15 His vacuity causes double
-refraction, "He," the self-effulgent lightens in the Ego. Beyond law and the guest at the "Feast of the
-Supersensualists." 16 He has power over life and death. 17 Save by this, he is not beyond selfreproach,
-verily he has loosed all the trouble of the world, the murder from the lightning. Self-love
-preventing the mind from concentration, is identity without form, is no thought as such; law and
-external influences contained, do not affect. When that giving up all belief, reflects only its meaning,
-then is there purity of vision, innocence of touch, ergo, self-love. Verily, verily men are born, suffer
-and die through their belief. Ejaculation is death. Self-love is preservation and life.
+>いま、自己愛は明らかになる。それは〈信念（Belief）〉の完成形である。
 
-- 14: It the "Neither-Neither" emanates tetragrammaton of relatives, the sexes of which
-are evolved through their cruciform reflection and are elusive to identity. In their
-XXXX they produce unity XXXXX XXXXX conception. Ego generating by subdivision
-they embrace eternity, in their manifold ramifications is law.
-- 15: i.e. his rainbow.
-- 16: Chapter on self-attraction omitted.
-- 17: This is the test. The one who doubt would naturally submit himself.
+>〈自己（Self）〉とは、「ニーチャー＝ニーチャー（Neither-Neither）」そのもの。何も欠けることなく、分離することもできず、先入観に染まらず──自己自身の「打ち勝ちようのない愛」によって概念が解体される。
+
+この状態において──
+- 欲望
+- 意志
+- 信念
+はもはや分かたれたものではなくなる。
+
+引力、斥力、コントロールといった働きも、すべては自己の中に収まり、「快楽としての原初的統一」となる。
+
+>二元性は存在せず、統一への欲望すら生じない。それが「ニーチャー＝ニーチャー」における平衡である。
+
+**信じるという行為は、もはや「自分」という観念によって縛られない**
+そのとき、自己はもはや環境によって形作られず、概念化されず、法に支配されない。
+
+>法への隷属は「天への憎悪」である。
+
+**唯一、永遠にすべてを悦ばせるもの──**
+
+>それが〈自己愛〉なのだ。
+
+瞑想によってこの輝ける自己を感じるとき、それは神秘的な歓喜となって現れる。
+
+>その至福の瞬間、彼は自らの想像力に正確に一致し、ただ「あるがままの幸福」を生きる。
+
+彼は「罪」を超えた健やかな無垢、誰も傷つけることなく、バランスの取れた感情（emotion）によって調律される。
+
+外部世界に意識を向けたとき、彼の意識はエクスタシーの屈折として現れる。真空（vacuity）が二重屈折を引き起こし、「彼＝光るもの（self-effulgent）」がエゴの中で輝き出す。彼は法を超え、「超感覚の宴（Feast of the Supersensualists）」の客人となる。
+
+>生と死すら、彼の意志の中にある。
+
+>これによってのみ、人は自責の念から解放される。世界のあらゆる「煩い」──雷の中の殺意さえも手放すことができる。
+
+**真の自己愛とは**
+
+- 心を集中から解放し、
+- 形を持たぬアイデンティティと化し、
+- 思考ですらなく、
+- 法や外部の影響すら届かない領域に在る。
+
+>すべての信念を手放したとき、ただその「意味」だけが反射される。
+
+そこにこそ、純粋なヴィジョン、無垢な触覚、そして──真なる自己愛がある。
+
+>❝まことに、まことに、人は──信念ゆえに生まれ、苦しみ、死ぬ。❞
+
+射精は「死」であり、自己愛は「保存と生命」である。
+
+>14:「ニーチャー＝ニーチャー（Neither-Neither）」は関係性の四重神名（Tetragrammaton of relatives）を放出する。それは性のあり方として十字形の反映（cruciform reflection）によって進化し、明確な同一性を持たずに存在する。それらの「XXXX（不明瞭な語句）」の中で統一を生む仕組みが働くが、「自我（Ego）」は分割によって生成し、多様な分岐の中で法則（Law）を構築する。
+>15:「外的に意識されるもの（refraction of his ecstasy）」とは、すなわち虹（rainbow）である。
+>16:「自己吸引（self-attraction）」に関する章は省略された。
+>17:「これこそが試金石（test）である。疑う者は自然と、自らを差し出すだろう（submit himself）。」
 
 Man to invoke pleasure in his choice, subtracts from desire, his desire is partial desire, becomes subduple
 (conflict), never is his energy full. Having no true focus, he is deceived in his strength and
@@ -261,7 +288,6 @@ beautiful and exceedingly amiable: where is the necessity of other means? Like t
 drunkard everything should be sacrificed for it. This Self-love is now declared by me the means of
 evolving millions of ideas for pleasure without love, or its synonyms- self-reproach, sickness, old-age,
 and death. The Symposium of self and love. O! Wise Man, Please Thyself.
-
 
 ---
 
