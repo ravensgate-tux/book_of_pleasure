@@ -33,29 +33,11 @@
 
 偉大なる科学者たちが、我々の呼吸に潜む微生物の死をもたらす性質を次々と発見している。彼らの理論が正しいとすれば──我々はすでに死んでいなければおかしいではないか？いいや、信じるがいい！科学の理論は正しい。疑念の信者たちを、決して失望させることはない。私たちはますますそれに親しみ、知ろうとする衝動に駆られる。そして──その知識が病と死をもたらすだろう。だが、安心せよ。その“死の知識”は、同時に“破壊の力”も与えてくれる！──だが、誰を破壊するために？すべては「辻褄が合う」ように計算されているのだ。これが「意志」の価値だろうか？「力への意志」だと？なんと生命を守り、なんと選択を洗練させ、なんと心地よく、なんと高貴な探求なのだろうか！ああ、科学者たちよ、底なしの奈落（Bottomless Pit）を、どうぞ発見しつづけてくれ！やがて、あなた方が科学にどっぷり浸ったとき──雷鳴が轟き、その殺意が稲妻となって放たれるだろう。そして、新たな希望が──？サーカス用の新たな生き物たちが──？そこから生まれてくるかもしれない。「神性（God-head）」の概念は、常に惰性（inertia）を孕んでいる。だからこそ、それはやがて“その正反対”へと変容していくのだ。なぜなら、それを最初から“内包していた”からだ。
 
-「主人」たる者は、自らの愚かさを痛みをもって学ばねばならぬのか？
+「主人」たる者は、自らの愚かさを痛みをもって学ばねばならぬのか？「神」という観念があるかぎり、そこには常に“神性”と“至高性”の忘却がつきまとう。そしてその忘却は、恐れによって埋められるのだ──そうだろう？無神論者などいない。誰ひとり、自分語り（自伝）から自由な者はいない。恐れを知らぬ快楽主義者？そんなものは存在しない。「概念」とは──その中に否定しがたい現実が“不在”であるということなのだ。だが、その概念が忘却の中に“記憶”として刻まれているとき──それは、あなたにとって現実になる“可能性”を持つ。そして、「祈り」──（そう、あなたは常に祈っている）──それがついに冒涜へと変容したそのとき──あなたは十分に魅力的となる。あなたの欲望は、そのとき初めて、満たされる。
 
-「神」という観念があるかぎり、そこには常に“神性”と“至高性”の忘却がつきまとう。そしてその忘却は、恐れによって埋められるのだ──そうだろう？
+なんという、謙虚という名の空中宙返りか！「神」が、恐れによって“外なる支配者”として投影されようが、愛によって“内なる住人”として想像されようが──結局、私たちは常に“神そのもの”だった。だからこそ、“神性”とはつねに“潜在するもの”として語られるのだ。その“生成されつづける神性”、“永遠に遅延し続ける顕現”──それが「生」という現象なのだ。「創造主」や「支配者」への嫉妬、そしてそれに“倣いたい”という究極の願望──**それもまた「存在」の一部であり、真の「生」の喪失」でもある。
 
-無神論者などいない。誰ひとり、自分語り（自伝）から自由な者はいない。恐れを知らぬ快楽主義者？そんなものは存在しない。「概念」とは──その中に否定しがたい現実が“不在”であるということなのだ。だが、その概念が忘却の中に“記憶”として刻まれているとき──それは、あなたにとって現実になる“可能性”を持つ。そして、「祈り」──（そう、あなたは常に祈っている）──それがついに冒涜へと変容したそのとき──あなたは十分に魅力的となる。あなたの欲望は、そのとき初めて、満たされる。
-
-What a somersault of humility!
-Whether God is projected as master by fear or as the dweller within by love Gods we are all the time,
-that is why divinity is always potential. Its constant generation, the eternal delay-is life. This envy of
-the Master or Creator-the ultimate hope to follow in manner is also existence and the forfeiture of
-"Life"!
-There is no scientific fact, it ever implies its opposite as equal fact, this is the "fact." Then why
-trouble to prove anything a fact? This vain hope to prove finality is death itself, so why humbug the
-"Desire"? You have proved (by mathematics!) the sun to be so many millions of miles away from
-you-you will now improve its efficiency! Nature-that impulse to the antitheses of your truths, will
-early prove (by mathematics and whenever you like!) that the Sun does not exist at all! Or if you
-wish-it will prove conclusively that the Sun is millions of millions of miles further away or millions
-of miles nearer than you once thought! Most extraordinary thinker! These facts and many others are
-already know to the butterfly, the lice, the insects-and perhaps yourself? Whose senses are the more
-true-yours or the house-fly's? You will eventually adopt their vision-their thoughts and wisdom-you
-were such once? You are such now but have not awakened them-you will be such again in power!
-Wondrous progress! Most meritorious accomplishments! Most merciless! Progress should be closely
-examined and what you have gained by the convenience of science.
+科学的事実？そんなものは存在しない。なぜなら、あらゆる“事実”は、その“反対”をもまた“等しい事実”として内包しているからだ。それこそが“事実”なのだ。ならば、なぜ「何かを証明しよう」などと思うのか？“最終的な真実”を証明しようとするその希望こそが「死」なのだ。ではなぜ、“欲望”を欺こうとするのか？あなたは数学によって太陽までの距離を証明した。──で、次は何をするつもりだ？太陽の効率を改善するつもりか？自然は、あなたの真実に対する“否定衝動”そのものとして、すぐにでも（同じく数学を使って）こう証明するだろう。「太陽など、存在しない。」あるいは、もし望むなら「太陽は、以前の予測より何百万マイルも遠く、あるいは近い。」──なんと卓越した“思索者”だろう！この「事実」たちは、蝶も、シラミも、昆虫たちも、とっくに知っている──もしかすると、あなた自身も？あなたの感覚と、ハエの感覚と、どちらが真実に近いのか？いずれ、あなたは彼らの“視野”を、思考を、知恵を採用するだろう。かつて、あなたもそうだった。いまも、そうかもしれない。まだ目覚めていないだけなのだ。そしてまた、そうなるだろう──力を持って。なんと素晴らしい「進歩」だろう！なんと見事な「業績」だろう！なんと容赦のない「進歩」だろう！その“進歩”とやらがもたらしたものを、そして、科学の“利便性”によってあなたが何を得たのか──よく見極めることだ。
 
 A thought for perspective-you are always what you most wish-the prospective! Your desire is to live
 according to your desire, and this you are always realizing! Most noble sentiment!-you are "it"
