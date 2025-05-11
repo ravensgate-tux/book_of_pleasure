@@ -67,7 +67,7 @@ is an object of disgust? And what is the use of knowledge and charity when reali
 Unsheathe the sword of self; ideas of the Almighty should be constantly slain and righteousness
 should be inquired into.
 
-- 12: And does kill when feared.
+>12: And does kill when feared.
 
 Whosoever shall study his true nature a little, him does the "self" investigate with his extraordinary
 conduct. He can compel anything without offending. As the tendency of the most lustful ceases
