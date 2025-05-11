@@ -16,7 +16,6 @@
 
 
 <div align="center"; style="display: flex; gap: 200px;">
- <img src="spare_photo_relaxed_2.png" width="300">
  <img src="death_posture.jpg" width="300">
 </div>
 
@@ -45,6 +44,12 @@
 
 - [08 魔術の儀式と教義──完全版](08_closing_remarks.md)
 
+---
+<div align="light">
+オースティン・オスマン・スペア（Austin Osman Spare, 1886–1956）
+20世紀初頭のロンドンに生きた芸術家・魔術師・思想家。10代で画壇の寵児となるも、既存の芸術・宗教・魔術体系すべてに背を向け、自らの内的ヴィジョンに従った独自の魔術体系「Zos Kia」を構築。人間の無意識を“描く身体（ZOS）”と“観る意識（KIA）”という対概念で捉え、シジル魔術や自己愛を軸にした極めて個人的・即興的な実践を展開した。ケイオスマジックの先駆者として評価される一方で、その文体と思想の難解さゆえに誤読も多く、没後もなお再評価と誤解が交差する存在である。代表作に『The Book of Pleasure（快楽の書）』『Anathema of Zos』など。
+ <img src="spare_photo_relaxed_2.png" width="300">
+</div>
 ---
 
 ## 🐌 ZOSとKIA──スペアと後世の違い（要約解説）
