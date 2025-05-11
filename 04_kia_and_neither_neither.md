@@ -43,27 +43,15 @@
 
 その意識は、いつも笑みを浮かべた記念碑である。「あなたが“人生を本当に楽しんだかどうか”」を記念する、唯一の存在だ。
 
-「意志（Will）」の神は、「服従せよ」という命令そのものであり、その“正義”は万人が恐れる。意志とは剣──服従した者への褒賞（または罰）である。「意志」とは、信じるための命令にすぎない。あなたの「意志」とは、“あなたのために信じることを信じるよう命じた何か”なのだ。あなたが「考える」とき、それは──“それ”がそうしたいと思ったとき。意志とは、手段のための手段。「複雑性」であり、「自由」か否かは問題ではない。意志と信念を超えたところに、“自己愛（Self-love）”がある。私はこれに勝る名前を知らない。
+「意志（Will）」の神は、「服従せよ」という命令そのものであり、その“正義”は万人が恐れる。意志とは剣──服従した者への褒賞（または罰）である。「意志」とは、信じるための命令にすぎない。あなたの「意志」とは、“あなたのために信じることを信じるよう命じた何か”なのだ。あなたが「考える」とき、それは──“それ”がそうしたいと思ったとき。意志とは、手段のための手段。「複雑性」であり、「自由」か否かは問題ではない。意志と信念を超えたところに、“自己愛（Self-love）”がある。私はこれに勝る名前を知らない。それは、望むものを信じる自由であり──何の信仰とも関係ないものを信じる自由だ。「真実」は、理解するのが難しいものではない。なぜなら──「真実」には意志がなく、「意志」には真実がないからだ。「真実」とは、“信じられなかった意志”そのものなのだ。それには真実がない。でも──“かもしれない”が、唯一の確かさなのだ。このつきまとうスフィンクスは、「あらゆるものへの意志」の価値を教えてくれる。ならば──「絶対的な知識」ほど危険なものはない。少しの知識が危険なら、全知（Omniscience）はいかほどか？全能の力（Almighty Power）に、付属品など必要ない。
 
-それは、望むものを信じる自由であり──何の信仰とも関係ないものを信じる自由だ。「真実」は、理解するのが難しいものではない。なぜなら──「真実」には意志がなく、「意志」には真実がないからだ。「真実」とは、“信じられなかった意志”そのものなのだ。それには真実がない。でも──“かもしれない”が、唯一の確かさなのだ。このつきまとうスフィンクスは、「あらゆるものへの意志」の価値を教えてくれる。ならば──「絶対的な知識」ほど危険なものはない。少しの知識が危険なら、全知（Omniscience）はいかほどか？全能の力（Almighty Power）に、付属品など必要ない。
+科学とは、“可能性”への呪われた疑念──いや、「すでに存在しているもの」にすら向けられる疑いそのものだ！あなたには、「不可能なこと」を思い描くことはできない。なぜなら──不可能なものなど存在しないからだ。むしろ、あなた自身こそが「不可能」なのだ！疑念（Doubt）とは「時間の遅延」。だがそれは、なんと厳しい罰をもたらすことか！この世には──「ある真実」が「他の真実」より真実であることなど、ない。「あなたは何者ではないか？」そう問われて、あなたは本当に正しく答えられたことがあるか？あなたは、自分自身を抑圧しつづけ、記憶していたことを、繰り返し忘れていく。あなたは、感覚対象に抗い、感覚機能に対しても信じたり信じなかったりという形で抵抗している。
 
-Science is the accursed doubt of the possible, yea, of what does exist! You cannot conceive an
-impossibility, nothing is impossible, you are the impossible! Doubt is delay-time-but how it punishes!
-Nothing is more true than anything else! What are you not-you ever answered truthfully?
+だが──
+その“感覚の能力”たちは、あなたがまだ見たこともない無数の原子のように数えきれず、しかも“一”のように果てしない。それらは、意志ひとつで命を持つ。あなたは、いつもそのうちのいくつかを採用しているだけだ。あなたが語る「知識」も、そうした感覚の器官を通して語られているにすぎない。だが──もし、あなたが“自分の文法”を理解していたなら、あなたが「否定した」その能力こそが、あなたの言葉よりも大きな声で──あなたを語っているのだ。
+私は、「全能者」の知恵など信じない。
 
-You tyrannise over yourself, so constantly forget what you remember; you resist sense objects and
-show resistance to the faculties by believing or not. These faculties are as numerous as the atoms you
-have not yet seen, and they are as endless as the number one-they come into life at will. You adopt a
-few at a time- knowledge you speak through them- did you but understand your grammar those you
-disown speak louder than your words! I would not believe the wisdom of the Almighty.
-
-Belief is ever its own tempter to believe differently; you cannot believe freedom but you may be freed
-from belief? Neither can you believe the "Truth" but you need not compromise yourself. The way of
-Life is not by "means"-these doctrines-my doctrines even though they allow the self-appointed
-devotee to emulate my realization- may I ever blush! The man of sorrows is the Teacher! I have
-taught- would I teach myself or thee again? Not for a gift from Heaven! Mastership equals learningequals
-constant unlearning! Almighty is he who has not learnt and mighty is the babe- it has only the
-power of assimilating!
+信念というものは、つねに“別の信念へと誘惑する”性質をもっている。あなたは、「自由」を信じることはできない。──だが、信じることから自由になることはできる。同じように、「真理」を信じることはできない。──だが、それでも自分を偽る必要はない。生の道（Way of Life）とは、「手段」によって達成されるものではない。この「教義」──私自身の教義でさえも！それは、自己流に献身しようとする者に「私の悟りに似たもの」を演じる自由を与えてしまう。ああ──なんと顔から火が出ることか！“悲しみの人”こそが、師なのだ。私は「教えた」。──だがもう一度、自分に、あるいはあなたに“教え直す”つもりはない。たとえ──天から贈り物をもらえるとしても、だ。“師である”とは、“学ぶ者”であることであり、“学ぶ”とは、つねに“忘れていくこと”でもある。「何も学ばなかった者」こそが、全能（Almighty）である。そして──赤子こそが、真に力ある存在である。なぜなら、それは「吸収する力」しか持たないからだ。
 
 The most solecistical of fools now asks-"how can we escape the inevitable evolutions of conceptionas
 all is ever conceiving"? My answer shall permit all means, all men, all conditions. Listen, O, God
