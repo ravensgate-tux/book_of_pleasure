@@ -30,7 +30,7 @@
 >21: 「幻滅の瞬間」の例
 　たとえば「友人への信頼を失ったとき」や、「愛による結びつきが期待を裏切ったとき」などがそれにあたる。信念の崩壊＝欲望の開放という視点は、Spareの魔術論の一端をなす。
 
-**Casting the Shadow.**
+**内なる影を投影する**
 
 The Ego not being totally oblivious, let him retain only and visualise the Sigil form, it is his chalice,
 the means of vacuity and incarnation. By the deliberation of an analogous emotion at that time, he
