@@ -16,7 +16,7 @@
 
 
 <div align="center">
- <img src="book_pic.png" width="600">
+ <img src="book_pic.png" width="500">
 </div>
 
 ---
