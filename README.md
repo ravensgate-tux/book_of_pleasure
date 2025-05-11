@@ -37,7 +37,7 @@
 
 - [05 死の姿勢 (Death Posture)](05_death_posture.md)
 
-- [06 The Cloudy Enemies Born of Stagnant Self-Hypnotism.（Soliloquy on Godhead）](06_soliloquy_on_godhead.md)
+- [06 停滞した自己催眠が生み出す、濁った敵（神性についての独白）](06_soliloquy_on_godhead.md)
 
 - [07 Preface to Self-Love](07_on_duality_and_ecstasy.md)
 
