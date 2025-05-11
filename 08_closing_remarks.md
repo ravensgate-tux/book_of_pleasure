@@ -203,54 +203,30 @@ Spareが提唱する**「シジル」とは、
  <img src="sigil_zos-kia.png" width="600">
 </div>
 
-- 27: There are six methods of Sigils employed in this book, each corresponding to
-different strata. The one shown here is illustrative and the fundamental idea of them
-all, from which anyone can evolve his own system. Conditions, etc., or necessity
-subsequently evolve themselves. Also a person has more power of creation and
-originality with a limited means of expression.
+>**27:** この書に示されるシジルには6つの異なる手法があり、それぞれが異なる潜在意識の層に対応している。ここで例示されているものは、それらすべてに共通する基本的なアイデアを示すものであり、誰でもこの基礎から自分自身の体系を発展させることが可能である。条件や必要性は後から自然と進化していく。むしろ、表現手段を限定することで創造性と独自性は増すのだ。
 
-Now by virtue of this Sigil you are able to send your desire into the subconsciousness (which
-contains all strength); that having happened, it is the desire's realization by the manifestation of the
-knowledge or power necessary.
+このシジルの力によって、あなたの欲望は潜在意識（あらゆる力の源）へと送り込まれる。そうなれば、必要な知識や力の形で欲望は実現される。
 
-First, all consciousness except of the Sigil has to be annulled; do not confuse this with
-concentration- you simply conceive the Sigil any moment you begin to think. Vacuity 28 is obtained
-by exhausting the mind and body by some means or another. A personal or traditional means serves
-equally well, depending on temperament; choose the most pleasant; these should be held in favour,
-Mantras and Posture, Women and Wine, Tennis, and the playing of Patience, or by walking and
-concentration on the Sigil, etc., etc. None is necessary to him who has (even symbolically) for a
-moment by the "Neither-Neither" conquered the dual principle (Conception), his Ego is free from
-gravity. If the Sigil is made an obsession by continual apprehension, its realization may happen at any
-moment, in the form of inspiration. This is done by reverting the mind to the Sigil when one is
-extremely worried- the time of exhaustion is the time of fulfilment. At the time of exhaustion or
-vacuity, retain only and visualize the Sigil form- eventually it becomes vague, then vanishes and
-success is assured. by the Ego conceiving only the Sigil, and not being able to conceive anything from
-it, all energy is focussed through it, the desire for identification carries it to the corresponding subconscious
-stratum, its destination. The Sigil being a vehicle, serves the purpose of protecting
-consciousness from the direct manifestation of the (consciously unacknowledged) obsession, conflict
-is avoided with any incompatible ideas and neither gains separate personality. It (the obsession) is
-either gradually assimilated and becomes organic or returns to its original abode, its purpose of
-illumination served. Hence the mind, by Sigils, depending upon the intensity of desire, is illuminated
-or obsessed (knowledge or power) from that particular Karma (the sub-conscious stratum, a
-particular existence and knowledge gained by it) relative to the desire, but not from memory or
-experience which was recent. Knowledge is obtained by the sensation, resulting from the unity of the
-desire and Karma. Power, by its "actual" vitalization and resurrection.
+まず必要なのは、シジル以外の意識をすべて消し去ることである。これは「集中（concentration）」とは異なる。シジルはただ「思考しはじめた瞬間に浮かぶかたち」でよい。「虚無（vacuity）28」は、身体や心をなんらかの方法で疲弊・消耗させることで達成される。手段は個人の気質により異なるが、伝統的なものでも個人的に心地よいものでも構わない。たとえば、マントラや姿勢、女性やワイン、テニス、トランプ遊び、散歩とシジルへの集中……など様々である。しかし、「ニーチャー＝ニーチャー（Neither-Neither）」によって二元的な概念（Conception）を一瞬でも象徴的に超越した者は、いかなる手段も必要としない──彼のエゴは重力から解放されているのだ。シジルが強い執着をもって保持されている場合、それはインスピレーションのかたちでいつでも実現し得る。たとえば、「極度の疲弊や不安」のときに意識をシジルに戻すことで、それが起こる。シジルを保持し、それだけを視覚化する訓練をすれば、やがてそのイメージはぼやけ、消え去る。このとき、成功は確実である。エゴがシジルのみを把持し、そこから何かを「思考できない」状態になると、あらゆるエネルギーがそのシジルに集約される。このとき、欲望は対応する潜在意識の層（ストラタム）へと届けられる。つまり、シジルは媒体として機能し、意識を“その欲望が直接的に顕在化すること”から保護するのだ。
 
-- 28: This is not the passivity of mediumism which opens the mind to what is called
-external influence- disembodied energy usually having no better purpose than to raptables.
-There are many means of attaining this state of vacuity: I mention the most
-simple, there is no need for crucifixion. Drugs are useless. Smoking and laziness the
-more difficult.
+その結果：
 
-This knowledge leaves its stratum in company with the energy or desire returning to the Ego. It
-escapes the Ego's resistance by associating with similar images, memories, or experiences relative
-(recieved in this life), that the mind contains, and crystalizes itself by their symbolism. Hence most
-illumination is symbolic, and must be subsequently translated.
+- 顕在意識と衝突するような葛藤を回避し、
+- その欲望（執着）は徐々に吸収されて有機的な一部となるか、
+- 元の場所に戻り、目的を果たす。
 
->[Chapters on Symbolism, Automatic Drawing As Means To Art, & Note on Sacred
-Letters omitted.]
+欲望の強度によって、潜在意識の該当層から知識（illumination）や力（obsession）が引き出される。これは直近の経験や記憶から来るものではなく、その欲望に関係するカルマ（存在レベル）から来るものである。
 
-**On Myself.**
+- 知識は、欲望とカルマが結びついたときの感覚（sensation）によって得られる。
+- 力は、その欲望が「実際に」活性化され、蘇生することによってもたらされる。
+
+>**28:** 注28：ここで言う「虚無」とは、いわゆるメディアム状態の受動性とは異なる。それは、外的存在やエネルギー（多くの場合、ラップテーブル現象を引き起こすような低次のエネルギー）に心を開くことを意味しない。虚無に至る手段はいくつもあるが、もっとも単純な方法を挙げる。十字架にかけられる必要はないし、薬物も無益である。むしろ喫煙や怠惰は虚無に至る最も難しい道である。
+
+この「知識（illumination）」は、欲望やエネルギーとともに潜在意識の層から生まれ出て、再びエゴへと戻ってくる。それは直接的な形ではなく、顕在意識に存在する過去のイメージ、記憶、経験と共鳴することで、抵抗を回避しながらエゴに受け入れられる。つまり、同質の象徴と結びつくことで、知識は「翻訳可能なかたち」で結晶化するのである。そのため、ほとんどの「啓示」や「霊感（illumination）」は象徴的（symbolic）な形をとり、後から翻訳・解釈される必要がある。
+
+>[このあとに本来含まれているべき章──「象徴論」「自動描画と芸術の関係」「聖なる文字についての覚え書き」などは、この原稿では省略されている。]
+
+**私自身について**
 
 Conceiving, thou hast given no sign of life. In claiming thee, a labour of creating value, is nothing
 worth holding, nothing satisfying; the realization of thy inhibition all? By self-effacement would
