@@ -35,11 +35,15 @@ In that day there can be deliberation. Without subjection, what you wish to beli
 himself ungoverned; Kia, the supreme bliss. This the glorious Science of pleasing one's self by a new
 agreement, the art of Self-love by recognition, the Psychology of ecstasy by non-resistance.
 
-- 6: Sex-less.
-- 7: They being dual have analogy to certain early sex principles in nature. They are carried further in the sacred alphabet, being too abstruse to explain by orthodox words and grammar.
-- 8: The Ego.
-- 9: The belief ever striving for denial- fulness by multiplication, is kept free by retention in this.
-- 10: "He", the Ego, now becomes the "Absolute."
+>6: Sex-less.
+
+>7: They being dual have analogy to certain early sex principles in nature. They are carried further in the sacred alphabet, being too abstruse to explain by orthodox words and grammar.
+
+>8: The Ego.
+
+>9: The belief ever striving for denial- fulness by multiplication, is kept free by retention in this.
+
+>10: "He", the Ego, now becomes the "Absolute."
 
 **The Ritual and Doctrine**
 
