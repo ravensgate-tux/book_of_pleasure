@@ -154,32 +154,11 @@ Spareが提唱する**「シジル」とは、
 
 無意識とは──あらゆる経験と叡智のエッセンスであり、かつての人間、動物、鳥、植物など、すべての生命の記憶と進化の層を内包するものである。この層を深く掘り下げれば、より古く、より原始的な生命形態へと至る。その最も深い層にあるのは、「全的なシンプルさ（Almighty Simplicity）」だ。そして、もしこれらの層を目覚めさせることに成功すれば、それらの性質（特性）を自分のものとして得ることができ、その達成は、目覚めさせた層に対応したものとなる。これらははるか過去の存在であり、極めて曖昧な暗示によってのみ目覚める。そのためには、思考が非常に静まり、単純化されている必要がある。彼らの叡智を得るとは、彼らの肉体を持つことではない。身体とは「手段」に応じて変化するものであり、たとえば私たちはチーターのような身体を持たずとも、それより速く移動できる。自然を観察すれば、古代の生命体は実に驚くべき特性を持つ。驚異的な適応力、巨大な強靭さ、そして中には不死のような再生能力を持つものさえいる。たとえば微生物は、世界を滅ぼす力すら秘めている（仮に彼らが私たちに興味を持てば、の話だが）。その一部を切り取っても、再生する。つまり──これらの存在を「喚び起こし」、それに「取り憑かれ」あるいは「照らされるilluminated）」ことで、私たちは彼らの魔術的な特性、またはその到達法を手に入れることができる。これはすでに起きていることでもある（すべてのことは常に起きている）。だが、私たちが「知識を得よう」ともがくことで、それを遠ざけてしまっている。知性とは、“シンプルな栄養”のもとでこそ最大限に働くのだ。
 
-**The Key to Prophecy.**
+**予言の鍵（The Key to Prophecy）**
 
-The law of Evolution is retrogression of function governing progression of attainment, i.e., the more
-determined by that desire causing the activity of our bird etc. Karmas. Directly our desire reaches the
-stratum belonginging to those existences that can "fly" without wings- so shall we fly without
-machines. This sub-conscious activity is the "capacity," the "knowledge"; all other we acquire is of a
-negative or manurial value. The virtue of learning and acquiring knowledge by the ordinary means is
-in its worry and disappointment, of that degree which causes exhaustion: by that the desire might
-accidentally reach the real abode of knowledge, i.e., the sub-consciousness. Inspiration is always at a
-void moment, and most great discoveries accidental, usually brought about by exhaustion of the
-mind. My formula and Sigils for sub-conscious activity are the means of inspiration, capacity or
-genius, and the means of accelerating evolution. An economy of energy and method of learning by
-enjoyment. A bat first grew wings and of the proper kind, by its desire being organic enough to reach
-the sub-consciousness. If its desire to fly had been conscious, it would have had to wait till it could
-have done so by the same means as ourselves, i.e., by machinery. All genius has an hypothesis
-(usually natural) in the form of a hobby, which serves to restrain and occupy the conscious mind, to
-prevent its interference with spontaneous expression. The great Leonardo's mathematics, etc., served
-to "Deceive" him as such an hypothesis (and as Sigils). Our lives are full of the Symbolism of those
-predominating Karmas we are governed by. All ornament, useless dress, etc., are such (they please
-people because they feel the identification), and the means of locating them (Karmas). The
-symbolism of crowning a man King, is that he, resembling God (on earth), has reached the lowest
-strata of his sub-consciousness (those one-cell organisms if you like), which predominate as
-governing his functions. (Of course, those crowned Kings are never such, they symbolise the "hope,"
-not the reality.) Hence the floral nature of and precious stones in design of the crown relate to first
-principles. He is King who has reached the dual principle in its simplicity, the first experience which
-is all experience . . . . he has no need of crowns and kingdoms.
+進化の法則とは、「機能の退行」によって「到達する力」が決定されることだ。たとえば鳥のように空を飛ぶ存在になりたいという欲望が、潜在意識の深層に届いたとき──それによって私たちも翼なしで飛ぶ存在になるかもしれない。つまり、潜在意識が本当の「能力」や「知識」の源泉であり、それ以外の手段で得られる知識は、せいぜい肥料のような補助物にすぎない。私たちが日常的な手段で知識を学ぼうとする価値は、その「苦しみ」や「失望」の中にある。そうした精神的な疲労が偶然にも本当の知識の居場所──潜在意識にアクセスする可能性を開くのだ。インスピレーションは常に「空白（ヴォイド）」の瞬間にやって来る。偉大な発見の多くは偶然によるものであり、その多くは精神的な疲れによってもたらされる。私の「シジル（sigil）」の技法は、まさにこの潜在意識を活性化させるための方法だ。シジルは、天才性や進化を加速させる魔術的装置なのである。
+
+たとえば、コウモリが翼を持ったのは、単に「飛びたい」という欲望が強かったからではなく、その欲望が潜在意識の深層にまで染み込んでいたからだ。逆に、私たちのように飛びたいと表層意識で願う者は、機械を使わなければ飛ぶことができない。天才というものには、往々にして「仮説」や「趣味」がある。それは表層意識を適度に誤魔化し、潜在意識の自発的表現を邪魔しないようにするためのトリックだ。レオナルド・ダ・ヴィンチの数学や技術への興味も、そのような意識の「欺き（sigil）」である。私たちの人生は、自分を支配する「カルマ（業）」の象徴に満ちている。 無意味な装飾や過剰な衣服が人々を喜ばせるのは、彼らがそこに自分の「業」の象徴を見出すからであり、それこそがカルマの位置を示す鍵となる。「王に戴冠させる」という儀式の象徴は、「神に似た存在」としての人間が、潜在意識の最下層──一細胞レベルの根源に到達したことを意味する。だが実際の王はその理想の象徴にすぎず、現実ではない。真に「王」となる者は、分割される以前の「二」なる原理を、極限の単純さにおいて理解した者である。
 
 By Sigils and the acquirement of vacuity, any past incarnation, experience, etc., can be summoned to
 consciousness. It may even happen in sleep in the form of dreams, but this means is very difficult.
