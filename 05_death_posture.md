@@ -59,15 +59,8 @@ Spareの思想において、信念とは固定されたものではなく、否
 それは、「いま、この瞬間にやること」だ。「いつか、あとで」ではない。“反対物”を通さずに──ただ知覚し、感じよ。影を通さずに、「光を、光自身の色として」見るように。──そのためには、
 合一（ユニオン）のエクスタシーの最中に「笑い」という感情を呼び起こすこと。それを何度も練習し、その笑いが疲れず、微細に続くまで高めよ。このようにすれば、あらゆる反応（リアクション）の法則は無力化される。「含むこと」によって、それを越えるのだ。もし人が100の快楽を同時に味わったとしても、そのエクスタシーがどれほど高まったとしても──彼は何も失うことはない。むしろ、そこにこそ大きな増加（great increase）が起こる。よって、彼はこれを日々の実践として行うべきだ。──そうして欲望の中心（the centre of desire）に至ること。このとき、彼は「偉大なる意志（Great Purpose）」を模倣したことになる。このようにして、あらゆる感情は“放出（emanation）”の瞬間において均衡（equipoise）を保ち、やがて“ひとつ”になるべきなのだ。
 
-Thus by hindering belief and semen from
-conception, they become simple and cosmic. By its illumination there is nothing that cannot be
-explained. Certainly I find satisfaction in ecstasy. I have now told you a secret of great import, it was
-known to me in childhood. Even by sedulously striving for a vacuity of belief, one is cosmic enough
-to dwell in the innermost of others and enjoy them. Among men few know what they really believe
-or desire, let him begin, who would know, by locating his belief till he sees his will. Existing as dual,
-they are identical in desire, by their duality there is no control, for will and belief are ever at
-variance, and each would shape the other to its ends, in the issue neither wins as the joy is a covert of
-sorrow. Let him unite them.
+ゆえに──信念と精（semen）を“受精（conception）”に向かわせることを妨げれば、それらは単純（simple）にして宇宙的（cosmic）なものとなる。それがもたらす“光（illumination）”によって、この世には、説明できぬことなど何もなくなる。──たしかに、私はエクスタシーの中にこそ、満足を見出してきた。私はいま──きわめて重要な秘密をあなたに語った。それは、私が幼少の頃から知っていたことだ。たとえ、信念の空虚（vacuity）を得ようと必死に努力したとしても、それだけで人は──他者の最奥にまで宿ることができ、彼らを楽しむことすら可能になる。人間のほとんどは、
+自分が何を本当に信じ、何を欲しているのかを知らない。もし知りたいのなら──自らの「信念」がどこにあるかを突き止め、その先にある「意志（will）」を見ることから始めよ。人が二元性として存在する限り、彼らの欲望は同一（identical）である。だがその“二元性”ゆえに、制御は失われている。なぜなら──「信念」と「意志」は常に衝突し、互いを自分の望む方向へと曲げようとするからだ。その結果、どちらも勝つことはない。なぜならその喜びは──すでに「悲しみの隠れ家（covert of sorrow）」となっているからである。だからこそ、あなたは、それらを統合しなければならない。
 
 ---
 
