@@ -71,7 +71,7 @@ KIAは進化の原因でもなければ、時間にも属さない。意識や�
 人はいつだって「意志の真理（The Will）」としてこれを信じている。──信じているのは「対象」ではなく、「意志そのもの」だ。なぜなら、“目的のための手段”とは、果てしない「手段の進化」でしかないからだ。この驚くほど単純な境地においては、「知恵の始まり」も「終わり」も存在しない。どんな事物にも始まりも終わりもない。だから、それが「概念」や「知性」に関連づけられることなど──あり得ないのだ。
 
 
-**Self-Love as a Moral Doctrine and Virtue.***
+** 道徳としての自己愛、そして「徳」としての自己愛 **
 
 The criterion of action, is freedom of movement, timeliness of expression, pleasuring. The value of a
 moral doctrine is in its freedom for transgression. Simplicity I hold most precious. Are not the most
