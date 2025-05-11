@@ -52,20 +52,8 @@ Spareの思想において、信念とは固定されたものではなく、否
 そして、心のなかに“視る”作業を開始する。見えてくるのは、光のようなもの──いつも「X」の形をしている奇妙な軌道（curious evolutions）である。この光を、絶対に手放してはならない。
 意識がその操作を忘れるほどにまで集中し続けるのだ。すると、やがて──「自分が巨大な空間（immensity）」になったような感覚が生じる。そこには、自分の“小さな姿”が見えている。しかしその限界（リミット）には、決して到達することができない。この練習は、先ほどの実技（死の姿勢など）を試す前に行うべきである。このとき湧き上がる「感情（emotion）」こそが、なぜこの行為を行うのか──その「答え（knowledge）」を告げてくれる。
 
-The death posture is its inevitability accelerated, through it we escape our unending delay by
-attachment, the Ego is swept up as a leaf in a fierce gale- in the fleetness of the indeterminable, that
-which is always about to happen becomes its truth. Things that are self-evident are no longer
-obscure, as by his own will he pleases, know this as the negation of all faith by living it, the end of
-the duality of the consciousness. Of belief, a positive death state, all else as sleep, a negative state. It
-is the dead body of all we believe, and shall awake a dead corpse. The Ego in subjection to law,
-seeks inertion in sleep and death. Know the death posture and its reality in annihilation of law- the
-ascension from duality. In that day of tearless lamentation the universe shall be reduced to ashes . . . .
-but he escapes the judgment! And what of "I," most unfortunate man! In that freedom there is no
-necessitation, what dare I say more? Rather would I commit much sin than compromise myself. There
-are many preliminary exercises, as innumerable as sins, futile of themselves but designative of the
-ultimate means. The death posture in the reduction of all conception (sin) to the "Neither-Neither"
-till the desire is contentment by pleasing yourself. By this and by no other are the inertia of belief;
-the restoration of the new sexuality and the ever original self-love in freedom are attained. 
+死の姿勢（Death Posture）とは、“避けがたいもの”を加速させる手段である。それによって──私たちは「執着による果てしない遅延」から逃れられる。エゴ（自我）は、烈風に舞う一枚の葉のように、吹き飛ばされる。そして、決して確定しない時間の中で、「いまにも起こりそうだったこと」が、ついに実現される。これまで隠れていた自明なこと（self-evidentなこと）が、もはや曖昧ではなくなる。人は、自らの意志で「自分を喜ばせる」ことを知る。これを「信仰を否定する唯一の道」として、生きて体得せよ。意識の二元性の終焉こそが、それである。信念（Belief）とは──「肯定された死の状態」である。それ以外のすべては、ただの“眠り”──否定の状態にすぎない。死の姿勢とは、我々が信じていたものすべての「死体」であり、やがて我々は、“目覚めた死体”として再び立ち上がるのだ。エゴは法則に従属する限り、眠りと死という“惰性”を求めて彷徨い続ける。死の姿勢を知れ。それは“法則を無効化する”という現実であり、二元性からの昇天（Ascension）である。その日、涙なき嘆きのなかで──宇宙は灰に還る。──だが彼は、その“審判”を逃れる。そして「私」は？なんという不幸な存在なのだろう！──だがその自由の中には、もはや何の必然性(necessitation）もない。私はこれ以上、何を言えるだろうか？むしろ──私は多くの罪を犯すだろう。だが、私自身を妥協するよりはマシだ。
+「予備的な練習（Preliminary Exercises）」は無数にある。──それは罪の数ほど存在する。それらはそれ自体では無意味だが、最終手段を指し示す“徴”ではある。死の姿勢とは、すべての観念（＝罪）を「いずれでもない」に還元し、欲望が「自己を喜ばせること」によって満たされる地点に至ること。この方法によって──そしてこれによってのみ、信念の惰性（inertia of belief）は消失し、新しいセクシュアリティは復元され、原初的な「自己愛」は、自由のうちに回復される。
 
 The primordial vacuity (or belief) is not by the exercise of focussing the mind on a negation of all
 conceivable things, the identity of unity and duality, chaos and uniformity, etc., etc., but by doing it
