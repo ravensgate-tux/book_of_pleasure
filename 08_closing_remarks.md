@@ -8,39 +8,27 @@
 
 **自己愛における法悦──執着という現象**
 
-My dearest, I will now explain the only safe and true formula, the destroyer of the darkness of the
-World, the most secret among all secrets. Let it be secret to him who would attain. Let it cover any
-period of time, depending on his conception. There is no qualification18, nor ritual or ceremony. His
-very existence symbolising all that is necessary to perfection. Most emphatically, there is no need of
-repetition or feeble imitation. You are alive!
-Magic, the reduction of properties to simplicity, making them transmutable to utilise them afresh by
-direction, without capitalization, bearing fruit many times. Know deliberation, over consciousness
-and concentration to be its resistance and sycophancy, the ultimate acquirement of idiotcy. Whether
-for his own pleasure or power, the fulfilment of desire is his purpose, he would terminate this by
-magic. Let him wait for a desire analogous in intensity 19, he then sacrifices this desire (or its
-fulfilment) to the initial desire, by this it becomes organic, the quantum. He has not attained freedom
-from law 20. Hence let him wait for a belief to be subtracted, that period when disillusionment has
-taken place 21. Verily disappointment is his chance. "This free entity of belief" and his desire are
-united to his purpose by the use of Sigils or sacred letters. By projecting the consciousness into one
-part, sensation not being manifold, becomes intensified. By the abstention of desire, except in the
-object, this is attained (at the psychological time this determines itself).
-By non-resistance (involuntary thought and action), worry and apprehension of non-fulfilment, being
-transient, find no permanent abode: he desires everything. Anxiety defeats the purpose, it retains and
-exposes the desire. Conscious desire is non-attractive. The mind quiet and focussed, undisturbed by
-external images does not distort the sense impressions (there is no hallucination; it would end in
-imaginative fulfilment), but magnifies the existing desire, and joins it to the object in secret.
+最愛なる者よ、私はいまこそ、この世の闇を打ち砕く唯一の安全で真実なる秘法を明かそう。すべての秘密の中で最も奥深く、成就を望む者にのみ秘されたままにしておくべきものである。この実践は、実際にかける時間はその人の「理解の深さ」によって異なるが──資格も儀式も不要である。彼の存在そのものが、すでに完全性に必要なすべてを象徴している。したがって、繰り返しや形だけの模倣に意味はない。あなたは、すでに生きているのだから。
 
-- 18: The means being simpicity, he is comparitively free to make his own
-qualifications and difficulties, i.e., many retirements are absurd and at once prove
-his incapacity, the non existence of what he sets about to prove. He at once sets his
-limit and servility.
-- 19: Just a natural desire.
-The Book of Pleasure Page 19 of 27
-http://arcaneadvisors.com/archives/Spare/book_of_pleasure.htm 2/10/2009
-- 20: This is a short formula for those whose belief is full in the law, are house holders
-following their desires. The formula holds good for any purpose.
-- 21: Illustration, the loss of faith in a friend, or an union that did not fulfill
-expectations.
+魔術とは、属性を単純化し、変換可能な状態に還元すること──再利用可能なものとして、方向性を与え、資本化することなく、何度も実を結ばせる技術である。意識的に考えすぎたり、集中しすぎることは、魔術にとってはむしろ抵抗であり、へつらいであり、最終的には「知的愚かさ」に至る。彼が「快楽」や「力」のいずれかのために欲望を成就しようとするならば、それは魔術によって終息させねばならない。そこで、彼は同等の強度をもつ欲望が現れるのを待ち、その欲望（またはその成就）を最初の欲望に捧げることによって、量子的で有機的な連結を果たす。この時点では、彼はまだ「法（law）」から自由ではない。
+
+したがって、幻滅が訪れた時──信念が脱落するその瞬間を待たねばならない。まさにその「失望」が、彼にとってのチャンスである。この**「自由となった信念」と欲望は、シジル（聖なる文字）を通じて目的に結びつけられる。意識をひとつの部位に集中させることで、感覚が分散されず、強くなる。欲望をその対象以外には向けずに保留することで、それは心理的なタイミングで自己決定的に達成される。非抵抗（意図しない思考と行動）の姿勢をとることで、心配や成就しないことへの不安は一過性のものとなり、彼の内には定着しない──なぜなら彼はあらゆるものを欲する者となるからである。
+
+欲望への「不安」は目的を妨げ、それを露出・固定させてしまう。意識的な欲望は魅力を持たない。心が静かで集中しており、外的イメージによって乱されていないならば、感覚の印象を歪めることはなく（つまり幻覚に陥らず）、すでに存在する欲望が増幅され、対象と密やかに結びつくのだ。
+
+>18: 「資格（qualification）」の不要性について
+>　魔術の手段が「単純性（simplicity）」である限り、実践者は自分で条件や制限を設定する自由をある程度持っている。しかし、それによって「過剰な制限」や「引きこもりの儀式」を課すならば、それは彼自身の無能を証明し、目的の空虚さを露呈するものとなる。
+>　Spareは「儀式的な撤退」や「禁欲的自己試練」などを嘲笑している。
+>
+>19: 「欲望の強度が等しいもの」とは？
+>　特別な条件を必要としない、**ごく自然な欲求（just a natural desire）**のこと。
+　ここで重要なのは、抑圧されていない素直な欲望がエネルギーの源となるという点。
+>
+>20: 「法（Law）」に信を置く者への短縮式
+　この簡易式（desireとbeliefの結合によるシジル化）は、欲望に従って日常を送る家庭人や信仰のある者にとって有効であるとされる。Spareは一貫して「実践」の重要性を説くが、日常生活におけるそれも排除しない。
+>
+>21: 「幻滅の瞬間」の例
+　たとえば「友人への信頼を失ったとき」や、「愛による結びつきが期待を裏切ったとき」などがそれにあたる。信念の崩壊＝欲望の開放という視点は、Spareの魔術論の一端をなす。
 
 **Casting the Shadow.**
 
