@@ -6,7 +6,7 @@
 
 🇯🇵 魔術の儀式と教義──完全版
 
-**Ecstasy in Self-love the Obsession**
+**自己愛における法悦──執着という現象**
 
 My dearest, I will now explain the only safe and true formula, the destroyer of the darkness of the
 World, the most secret among all secrets. Let it be secret to him who would attain. Let it cover any
