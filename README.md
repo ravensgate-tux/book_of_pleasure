@@ -35,7 +35,7 @@
 
 - [04 神性についての内なる問い](04_kia_and_neither_neither.md)
 
-- [05 The Death Posture](05_death_posture.md)
+- [05 死の姿勢 (Death Posture)](05_death_posture.md)
 
 - [06 The Cloudy Enemies Born of Stagnant Self-Hypnotism.（Soliloquy on Godhead）](06_soliloquy_on_godhead.md)
 
