@@ -48,12 +48,9 @@ Spareの思想において、信念とは固定されたものではなく、否
 
 まずは、仰向けにだらりと横たわる。その姿勢は、まるであくびをしかけている身体のように、緩く、自然に。微笑みながら息をゆっくり吐き──そのとき「微笑によって概念する」という行為が、この姿勢の核心である。かつて必要だと思い込んでいたものたちを、忘れよう。それらが持っていたはずの「意味」すら、いまや無意味として映るように。そうして──時間が溶けたその一瞬。そのとき、“徳”が発現する。次に、別の姿勢を取る。つま先立ちになり、両腕は背後で組み、できる限り強く引き絞るようにして、首を後方にぐいと反らす。そして、深く、断続的に呼吸する。──めまいが起こり、感覚が突発的な波のように押し寄せてくるまで、この姿勢を続ける。これにより、前述の「死の姿勢」へと至るための、肉体的・精神的消耗状態（Exhaustion）が得られる。この“消耗”こそが、意識を空にする準備状態であり、Spareが説く魔術的創造の「入口」にあたる。
 
-Gazing at your reflection till it is blurred and you know not the gazer, close your eyes (this usually
-happens involuntarily) and visualize. The light (always an X in curious evolutions) that is seen
-should be held on to, never letting go, till the effort is forgotten, this gives a feeling of immensity
-(which sees a small form ), whose limit you cannot reach. This should be practised before
-experiencing the foregoing. The emotion that is felt is the knowledge which tells you why.
-
+鏡に映った自分自身の姿を、じっと見つめる。──その姿がやがてぼやけて、「誰が見ているのか」がわからなくなるまで。そのとき──目を閉じよう。（※通常は、この瞬間に自然と閉じる）
+そして、心のなかに“視る”作業を開始する。見えてくるのは、光のようなもの──いつも「X」の形をしている奇妙な軌道（curious evolutions）である。この光を、絶対に手放してはならない。
+意識がその操作を忘れるほどにまで集中し続けるのだ。すると、やがて──「自分が巨大な空間（immensity）」になったような感覚が生じる。そこには、自分の“小さな姿”が見えている。しかしその限界（リミット）には、決して到達することができない。この練習は、先ほどの実技（死の姿勢など）を試す前に行うべきである。このとき湧き上がる「感情（emotion）」こそが、なぜこの行為を行うのか──その「答え（knowledge）」を告げてくれる。
 
 The death posture is its inevitability accelerated, through it we escape our unending delay by
 attachment, the Ego is swept up as a leaf in a fierce gale- in the fleetness of the indeterminable, that
