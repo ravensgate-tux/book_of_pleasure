@@ -27,37 +27,40 @@ KIAは進化の原因でもなければ、時間にも属さない。意識や�
 
 >あなたは、常に「かつてのあなた」だ。　──ただし、別のかたちで。
 
-どれほど虚栄に満ち、満足しているように見える個人や国家であっても、ただちに──未知にして不可避な「欲望」へと堕ちていく。その「欲望」は、あらゆる条件を通じて、人を少しずつ──消費してゆく。
+どれほど虚栄に満ち、満足しているように見える個人や国家であっても、ただちに──未知にして不可避な「欲望」へと堕ちていく。その「欲望」は、あらゆる条件を通じて、人を少しずつ──消費してゆく。心は、欲望によって欲望に忠誠を誓い、その結果、欲望を“堅固なもの”としてしまう。──だが、それが実現されたとき、それは「永遠に望ましい」ままでいられるのか？たとえ100万年続いたとしても？
 
-The mind becomes firm in desire by desire as devotion, but when realized is it then eternally
-desirable? (or even for a period of a million years). In Heaven shall be fettered thy foot! Therefore
-remove the conception that desire is pure, or impure, or has completion- remove it by the "Neither-
-Neither." Even whether the desire is for the exhasustion of desire by the "neither-Neither" or for
-realization in a wife- it is desire- its unending evolution. Therefore remove desire in any form by the
-"Neither-Neither." Remove the illusion that there is Spirit and Not-Spirit (this idea has never given
-beneficial results). Remove all conceptions by the same means.
+>天国でさえ、おまえの足は鎖に繋がれている。
 
-So long as the notion remains that there is "compulsory bondage" in this World or even in dreams
-there is such bondage. Remove the conception of Freedom and Bondage in any World or State by
-meditation on Freedom in Freedom by the **"Neither-Neither."**
+ゆえに、次のような観念はすべて──取り除かねばならない。
 
-For this we know- Vampirism is quite well proven enough- even by the strong presumption that 
-whenever blood-sucking is done, it is done by Vampire bats apart from the probability of it being
-done by a divine or human agency!
+-「欲望は純粋である」とか「汚れている」とか、
 
-Therefore Kiaize desire by the "Neither-Neither," the most excellent formula far beyond
-contentment- the all-embracing vacuum which reduces "all" to common sense and upon which this
-Universe rests.
+-「欲望には達成がある」とか
 
-Therefore believe nothing in this Book by the "Neither-Neither," and dispel the conception of the
-"Neither-Neither" by the "Neither-Neither," and belive it is "not-necessary" or the conclusion of
-pleasing yourself, because it "Need-not-be-Does-not-matter."
+-「欲望を“ニーチャー＝ニーチャー”によって消し去ろうとしていること自体も“欲望”である」ことすら──
 
-One believes this "all the time" as the Truth of "The Will" not the thing believed, since the means to
-an end mean evolution to endless means.
+それらすべてが“終わりなき欲望の進化”でしかない。だからこそ、こう宣言される：
 
-In that most remarkable simplicity there is no beginning or end of wisdom or of anything, so how can
-it be related to conception and intelligence?
+>欲望を、いかなる形であっても──「ニーチャー＝ニーチャー」によって消し去れ。
+
+「霊」と「非霊」という観念。この区別もまた、何ひとつ有益な結果を生んできてはいない。
+
+>あらゆる概念は、同じ技法で“解除”されるべきである。
+
+この世界（あるいは夢の中）に“避けられぬ束縛”という観念が残っている限り、その束縛は、ずっと存在し続ける。ならば、こうせよ──
+
+>“自由における自由”の瞑想によって、　自由と束縛という発想そのものを「ニーチャー＝ニーチャー」で消去せよ。
+
+そして最後に、Spare流の皮肉が走る：
+
+>「吸血行為（Vampirism）という現象は、すでに十分すぎるほど証明されている──　少なくとも、“吸血コウモリ”が存在するという事実によって！」
+
+だからといって、それが「神」や「人間」がやっていない保証にはならないだろう？
+
+ゆえに──欲望を“KIA化（Kiaize）”せよ。「ニーチャー＝ニーチャー」によって。それは「満足」など遥かに超えた、“すべてを包みこむ空白”である。そこでは、あらゆるものが“常識”にまで簡素化され、この宇宙そのものが、それに依拠して立っている。だからこの本に書かれていることも、一切、信じる必要はない。「ニーチャー＝ニーチャー」によって。そして「ニーチャー＝ニーチャー」すらもまた、「ニーチャー＝ニーチャー」で消し去るのだ。「必要なし・どうでもいい（Need-not-be / Does-not-matter）」──それが、“自分を喜ばせるための結論”である。
+
+人はいつだって「意志の真理（The Will）」としてこれを信じている。──信じているのは「対象」ではなく、「意志そのもの」だ。なぜなら、“目的のための手段”とは、果てしない「手段の進化」でしかないからだ。この驚くほど単純な境地においては、「知恵の始まり」も「終わり」も存在しない。どんな事物にも始まりも終わりもない。だから、それが「概念」や「知性」に関連づけられることなど──あり得ないのだ。
+
 
 **Self-Love as a Moral Doctrine and Virtue.***
 
