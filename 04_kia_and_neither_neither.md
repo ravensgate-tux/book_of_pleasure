@@ -53,14 +53,14 @@
 
 信念というものは、つねに“別の信念へと誘惑する”性質をもっている。あなたは、「自由」を信じることはできない。──だが、信じることから自由になることはできる。同じように、「真理」を信じることはできない。──だが、それでも自分を偽る必要はない。生の道（Way of Life）とは、「手段」によって達成されるものではない。この「教義」──私自身の教義でさえも！それは、自己流に献身しようとする者に「私の悟りに似たもの」を演じる自由を与えてしまう。ああ──なんと顔から火が出ることか！“悲しみの人”こそが、師なのだ。私は「教えた」。──だがもう一度、自分に、あるいはあなたに“教え直す”つもりはない。たとえ──天から贈り物をもらえるとしても、だ。“師である”とは、“学ぶ者”であることであり、“学ぶ”とは、つねに“忘れていくこと”でもある。「何も学ばなかった者」こそが、全能（Almighty）である。そして──赤子こそが、真に力ある存在である。なぜなら、それは「吸収する力」しか持たないからだ。
 
-The most solecistical of fools now asks-"how can we escape the inevitable evolutions of conceptionas
-all is ever conceiving"? My answer shall permit all means, all men, all conditions. Listen, O, God
-that art, yet would be God. When the mind is nonplussed- capability to attempt the impossible
-becomes known; by that most simple state of "Neither-Neither" the Ego becomes the Silent Watcher
-and knows about it all! The "Why" and "How" of desire is contained within the mystic state of
-"Neither-Neither" and common-sense proves it is the milk state, most nutritious! Clownish that I amyet
-all my ideas have come out of it (and, my friend, all yours), but ever have I been a sluggard- an
-old sinner who would see others almighty before himself.
+もっとも的外れな愚か者が、こう問うだろう──
+
+>「あらゆるものが“常に概念化され続ける”のなら、どうやってその“不可避の進化”から逃れられるのか？」
+
+よろしい、私はすべてを許そう──すべての手段、すべての人間、すべての状況を。聞け──「すでに神でありながら、なお神になろうとする者」よ。思考が立ちすくむとき──“不可能なものへ挑む力”が、
+あなたの内側にふと現れる。そして、そのもっともシンプルな状態──“Neither-Neither（いずれでもない）”──に至るとき、エゴは「沈黙する観察者」となり、すべてを“知っている”状態へと入る。
+
+欲望の「なぜ（Why）」と「どうして（How）」は、この神秘の状態 “Neither-Neither” のうちにある。そして、常識はそれを「ミルクの状態」──最も栄養のあるものだと証明してくれる。道化のような私だが、私のすべてのアイデアはこの状態から生まれた。──そして、親愛なる友よ、あなたのアイデアもまた、すべてそうだ。だが私はいつも怠け者で、老いた罪人だった──自分より先に、他人が“全能”になるのを見ていたい者だったのだ。
 
 ---
 
