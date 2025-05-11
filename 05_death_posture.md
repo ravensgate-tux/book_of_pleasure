@@ -65,8 +65,9 @@ necessitation, what dare I say more? Rather would I commit much sin than comprom
 are many preliminary exercises, as innumerable as sins, futile of themselves but designative of the
 ultimate means. The death posture in the reduction of all conception (sin) to the "Neither-Neither"
 till the desire is contentment by pleasing yourself. By this and by no other are the inertia of belief;
-the restoration of the new sexuality and the ever original self-love in freedom are attained. The
-primordial vacuity (or belief) is not by the exercise of focussing the mind on a negation of all
+the restoration of the new sexuality and the ever original self-love in freedom are attained. 
+
+The primordial vacuity (or belief) is not by the exercise of focussing the mind on a negation of all
 conceivable things, the identity of unity and duality, chaos and uniformity, etc., etc., but by doing it
 now, not eventually. Percieve, and feel without the necessity of an opposite, but by its relative.
 Percieve light without shadow by its own colour as contrast, through evoking the emotion of laughter
@@ -74,7 +75,9 @@ at the time of ecstasy in union, and by practice till that emotion is untiring a
 reaction is defeated by inclusion. Were he to enjoy an hundred pleasures at a time, however much his
 ecstasy, he does not lose, but great increase takes place. Let him practise it daily, accordingly, till he
 arrives at the centre of desire. He has imitated the great purpose. Like this, all emotions should find
-equipoise at the time of emanation, till they become one. Thus by hindering belief and semen from
+equipoise at the time of emanation, till they become one. 
+
+Thus by hindering belief and semen from
 conception, they become simple and cosmic. By its illumination there is nothing that cannot be
 explained. Certainly I find satisfaction in ecstasy. I have now told you a secret of great import, it was
 known to me in childhood. Even by sedulously striving for a vacuity of belief, one is cosmic enough
