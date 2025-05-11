@@ -12,6 +12,17 @@
 真理は自己の中にしかない：
 　どれほど師や外的体系に学んでも、真の自己理解は自己からしか得られない。この構えはSpareの自己愛思想と一致しています。
 
+📝注釈：Spareによる「天才（Genius）」の定義
+このブロックは、Austin Osman Spareが考える「Genius（天才）」の核心をなす記述であり、以下の3点にまとめられます：
+
+知識よりも体験（living）に重きを置く
+　Spareにとって、知識とは「再発見」にすぎず、“生きられた体験”こそが唯一の学びである。
+
+「自我（I）」を固定せず、流動する感情として捉える
+　天才的な直観は、**自我の固定化を手放した「中空のI」**によって訪れる。ここでの「immoral」とは、善悪を超えて“関係性”を解き放つ自由のこと。
+
+Neither-Neither ＝ 天才的認識の触媒
+　「ニーチャー＝ニーチャー」とは、あらゆる前提や信念を中断し、純粋な観察と直観の回路を開くための状態である。天才とはこの状態に“慣れ親しんだ者”なのだ。
 
 ---
 
@@ -85,22 +96,12 @@
 
 比喩と言葉の迷宮のなかでは、直観は失われてしまう。ゆえに、努力によらずに、真理とは学ばれるべきものなのだ──「ただひとり真理を知る者」──つまり“あなた自身”から。
 
-Of what use the wisdom of Virginity to him who has been raped by the seducer, ignorance? Of what
-use sciences or any knowledge except as medicine? Hidden treasure does not come at the word nor
-by digging with your hands in the main road. Even with the proper implements and accurate
-knowledge of place, etc., may be but the acquisition of what you possessed long ago. There is a great
-doubt as to whether it is hidden, except by the strata of your experience and atmospheres of your belief.
+処女の叡智が何になる？すでに無知という誘惑者にレイプされてしまった者にとっては。あらゆる科学や知識が何の役に立つ？それが薬（medicine）として用いられないなら。隠された宝が、「言葉」で出てくると思うか？あるいは、大通りを素手で掘ったところで見つかるだろうか？たとえ適切な道具と、正確な場所の知識があったとしても、それはただ──かつて自分が持っていたものを「再び手に入れる」にすぎないかもしれない。その宝は本当に「隠されている」のか？それとも、自分の経験の地層と、信念の空気（アトモスフィア）が覆っているだけなのか？
 
-The pertinent question now proposed by "Thee" should be asked by those desirous of some measure
-of genius. My answer like the mighty germ is in agreement with the universe, simple and full of deep
-import and for a time extremely objectionable to your ideas of good and beauty. Listen, attentively,
-O! Aspirant, all agog for information, to my answer, for by living the meaning thou shalt truly be
-freed from the bondage of constitutional ignorance. Thou must live it thyself; I cannot live it for thee.
+さて、「お前（Thee）」がいま投げかけた問いは、天才（genius）をわずかでも得たいと願う者にとって、まさに本質的である。そして、私の答えは「宇宙と同意する偉大な胚（germ）」のように、
+シンプルでありながら深い意味を秘めており、しばしのあいだ──お前が信じる「善」や「美」にとって、極めて不快なものだろう。だが、耳を傾けよ──情報を求めて逸る求道者（aspirant）よ。私の答えを「生きる」ことでこそ、お前は“憲法のように染みついた無知”から真に自由になる。お前自身が、それを“生きねば”ならぬ。私が代わって生きてやることはできぬ。
 
-The chief cause of genius is realization or "I" by an emotion that allows the lightning assimilation of
-what is perceived. This emotion is immoral in that it allows free association of knowledge without the
-accessories of belief. Its condition is, therefore, ignorance of "I am" and "I am not" with absentmindedness
-as believing. Its most excellent state is the "Neither-Neither," the free or atmospheric "I."
+天才の主要因とは、「I（自我）」の実現である。それは、ある種の感情によって可能になる──その感情とは、信念を伴わずに知識を自由に関連づけることを許すという、道徳に反する（immoral）性質を持つ。その感情の前提は、「I am（私はある）」や「I am not（私はない）」といった認識が不在であり、ぼんやりとした心の状態が“信じている”という状態になることだ。この感情のもっとも優れた状態こそ、ここで何度も語っている──「ニーチャー＝ニーチャー（Neither-Neither）」である。すなわち、「自由なるI」＝空気のような意識存在なのだ。
 
 You remember in your youth the thought "that this world is a curious place" in the emotion when
 you felt "why" as to whether this life is a reasonable development? What was the cause of this and of
