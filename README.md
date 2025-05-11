@@ -15,8 +15,8 @@
 ---
 
 
-<div style="display: flex; gap: 50px;">
- <img src="spare_photo_relaxed.png" width="400">
+<div align="center"; style="display: flex; gap: 50px;">
+ <img src="spare_photo_relaxed.png" width="500">
  <img src="death_posture.jpg" width="300">
 </div>
 
