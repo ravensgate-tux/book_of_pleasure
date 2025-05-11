@@ -20,30 +20,15 @@
 
 信念の本質とは、あらゆる可能性が「文化」を通じて「時間の枠内」に同一化されることで“真実”になるという構造にある。したがって──「時代にそぐわないもの」は「真実ではない」とされ、逆に「真実でないもの」は「予言（prognostication）」と見なされる。あるひとつのことを考えたとき、必然的にそれを否定する別の観念の可能性が生まれる。それは「矛盾」していても、「無関係」ではない。信念とは、この“どちらか”を「より真実らしく見せる」ための行為にすぎない。信念の本質とは、生命力（vitality）の可能性に対して、否定や制限を課すことである。つまり、何かを「信じる」ということ自体が、集中と訓練の産物であり、ある仮説や信条（faith）を採用することで、それに含まれないものを「問題にせずに済むようにする」構造なのだ。多くの場合、そうした信念は、拒絶したものを正当化するための“欺瞞的な理性”として働く。「真実」とは、決して“公式”や“定式（formula）”によって得られるものではない。
 
-The centre of belief is love for one's self, projecting environment for fulfilment but allowing its
-distortion to simulate denial, an ambition to become ulterior to self-desire, but you cannot get further
-than the centre, so one multiplies (believes) in order to be more unaware of the fundamental. Now
-this refusal to believe what one believes and exactly as one believes, is the first condition for all those
-who are in desire in any sense whatsoever; the man who is in love perforce becomes a liar, selfhypnotised
-by his morbid ornamentation. You know the results. . . . .You can only "truly believe"
-one thing, yet its implexion is essential (as the truth seems to kill 12), so the imagined goes on for
-ever. The imagination learns that the idea is its compulsion. To explain the "why" of belief (or of
-anything else), we must transcend its schism. By entire consciousness in how the self loves is the
-means. As we imitate this law of duality in all our processes of believing, it is not so simple as it
-seems. Who has transgressed the law of conception? Who has no fear? Yet by this sin, is the sciential
-of what determines the Schetic. Gracefully compelling or expecting disappointment at the time of
-desire is the means of locating its deceit, a consciousness that alone gives the chance of inquiry.
-Beyond it is something arbitrary, the pauser, the ordainer of law, imitating it by "reason" is but
-damning the consequences. Reason is belief, belief is fear of one's capability, the faith that you are
-not even all the wonders of creation, let alone the possibility of being the creator. It is delay . . . .
-Belief well earns the terrible hatred of the vitality. Belief is not freedom. Belief creates its necessary
-experience, progress germinates in retrogression. Consider the reality is somewhere: and your belief
-may be too small for its habitation. Oh, ye of much faith in God, merge into it by the worship of self!
-Ah! foolish man, worship the glorious in freedom. When death approaches the faith in God and
-desire of woman will not save you, what are their use when withering and decay sets in and the body
-is an object of disgust? And what is the use of knowledge and charity when reality is known?
-Unsheathe the sword of self; ideas of the Almighty should be constantly slain and righteousness
-should be inquired into.
+信念の中心とは、自己への愛であり、それは自分を満たすために環境を投影する力である。だがそれはしばしば歪められ、否定を装うようになる。それは「自己欲望を超越したい」という野心であり──
+だが、人は決して“中心”より遠くへは行けない。そこで人は信じる（believe）ことで、その核心から遠ざかろうとする。つまりこれは、「自分が信じていることを、そのまま信じることを拒否する」
+という逆説的行為だ。それこそが──あらゆる欲望を持つ者すべてに共通する最初の条件である。恋に落ちた者は、必ず嘘をつく。彼は病的な装飾によって、自らを自己催眠にかけるのだ。あなたも、その結末を知っているだろう……人は、本当に「信じる」ことができるのは、常にたった一つのことだけだ。だがその信念の“内包（implexion）”があまりに重すぎて、それが“真実を殺す”ように感じられる。だからこそ、想像は永遠に続く。想像力は、やがてこう学ぶ：「観念こそが、自らを縛る強制力である」と。信念（belief）の「なぜ」を説明しようとすれば、その内的分裂（schism）を超えるしかない。そしてそのためには、「自分がどう愛しているか」に全意識を向けることが鍵となる。
+
+我々は「信じる」という行為のすべてにおいてこの“二元性の法則”を模倣している。だがそれは、見かけほど単純なものではない。誰が、概念（conception）の法則を超えたのか？誰が、一切の恐れを持たない者なのか？──だが、この“罪（sin）”こそが、Schetic（設計・秩序）を決定づける科学性（sciential）なのだ。欲望の瞬間に「優雅に強要し」「失望を予期する」──それが、その欲望の欺瞞を見抜く手がかりとなる。それによって得られる意識こそが、問いを発することを可能にする唯一の条件である。その彼方には、任意の存在（something arbitrary）がある。それは「法を定める者」であり、「理性」によってそれを模倣することは──結果を呪うこと（damning the consequences）に等しい。
+
+理性とは、信念である。信念とは、自らの力への恐れであり──それはつまり、「自分が創造の驚異のすべてである」という可能性すら否定する信仰である。それは、ただの遅延（delay）にすぎない。信念とは、生命力にとって“恐るべき憎悪”を買うに値するものだ。信念に自由はない。信念は、それに見合った「必要な体験」を創り出す。進歩は、“後退”の中に芽生える。現実は“どこか”に存在しているかもしれない──だが、あなたの信念は、それを住まわせるには小さすぎるかもしれない。信仰深き人よ──神にではなく、自己への礼拝によって、その中に溶け込め。
+
+ああ、愚かな人間よ。自由に輝くものをこそ、崇めよ。死が近づいたとき──神への信仰も、女への欲望も、あなたを救ってはくれない。朽ちて枯れるとき、その体が嫌悪すべき物となったとき、それらは何の役にも立たない。そしてまた──現実を知ってしまったとき、知識や慈悲もまた、意味を失うのだ。“自己の剣”を抜け。「全能の神」の観念は、常に斬り捨てられるべきだ。そして、“義”とは何かを問うのだ。
 
 - 12: And does kill when feared.
 
