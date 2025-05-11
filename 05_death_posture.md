@@ -4,7 +4,7 @@
 
 ---
 
-🇯🇵 The Death Posture
+🇯🇵 死の姿勢 (Death Posture)
 
 Ideas of Self in conflict cannot be slain, by resistance they are a reality- no Death or cunning has
 overcome them but is their reinforcement of energy. The dead are born again and again lie in the
