@@ -4,7 +4,7 @@
 
 ---
 
-🇯🇵 Preface to Self-Love
+🇯🇵 自己愛を語る前に
 
 Let us be honest! Thou art "that," supreme in freedom, most desirable, beyond desire, untouched by
 the six stupifiers. The sexuality labours, so Death may harvest by desire. The elusive fancies of the
