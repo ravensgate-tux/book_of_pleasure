@@ -29,18 +29,9 @@
 
 間違いない。「おまえ」と「わたし」という意識の分離──それこそが、望んでいないのにいつでも現れる拷問者なのだ。けれど──それは「そうである必要はない」。どんな意味においても。なぜなら、それは**「恐れ」**にすぎないのではないか？あなたは、虎の棲む穴に入るのを恐れるだろう。（そして、入るかどうかはあなたの正義感＝生まれつきか教育によるものかに左右される。自分の意志で入るか、投げ込まれるか──そして、生きて出てこられるかどうかも。）だが、思い出してみてほしい。あなたは毎日、虎よりも恐ろしい存在たちがいる「巣穴」へ、何の恐れもなく飛び込んでいって、無傷で戻ってきている──いったい、なぜなのか？
 
-**The Allegory.**
+**寓話（The Allegory）**
 
-Great scientists are finding out the death-dealing properties of the microbes they discover we breathe,
-and which according to their canons should destroy; we should be already dead? Have faith! The
-canons of science are quite correct, they do not disappoint the doubt! Our greater familiarity-"this
-impulse to knowledge" will certainly bring us the disease and death they give! And also give us in
-compensation their powers of destruction! For the destruction of whom? Things will be squared! Is
-this the value of the will? This "will to power"-how life preserving! How furthering of discriminate
-selection! How pleasing! Most noble explorers! O, you scientists-go on discovering the Bottomless
-Pit! When you are sodden with science-the lightning will thunder out the murder? New hope will be
-born? New creatures for the circus? (The conception of) God-head must ever evolve its inertia for
-transmutation to its very opposite-because it contains it!
+偉大なる科学者たちが、我々の呼吸に潜む微生物の死をもたらす性質を次々と発見している。彼らの理論が正しいとすれば──我々はすでに死んでいなければおかしいではないか？いいや、信じるがいい！科学の理論は正しい。疑念の信者たちを、決して失望させることはない。私たちはますますそれに親しみ、知ろうとする衝動に駆られる。そして──その知識が病と死をもたらすだろう。だが、安心せよ。その“死の知識”は、同時に“破壊の力”も与えてくれる！──だが、誰を破壊するために？すべては「辻褄が合う」ように計算されているのだ。これが「意志」の価値だろうか？「力への意志」だと？なんと生命を守り、なんと選択を洗練させ、なんと心地よく、なんと高貴な探求なのだろうか！ああ、科学者たちよ、底なしの奈落（Bottomless Pit）を、どうぞ発見しつづけてくれ！やがて、あなた方が科学にどっぷり浸ったとき──雷鳴が轟き、その殺意が稲妻となって放たれるだろう。そして、新たな希望が──？サーカス用の新たな生き物たちが──？そこから生まれてくるかもしれない。「神性（God-head）」の概念は、常に惰性（inertia）を孕んでいる。だからこそ、それはやがて“その正反対”へと変容していくのだ。なぜなら、それを最初から“内包していた”からだ。
 
 The master must be the painful learner of his stupidity?
 
