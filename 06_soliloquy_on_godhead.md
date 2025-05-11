@@ -6,22 +6,11 @@
 
 🇯🇵 停滞した自己催眠が生み出す、濁った敵（神性についての独白）
 
-Natural belief is the intuition that compels belief through that which is experienced reacting, and
-dominating in turns; everything has to associate itself through its definite emotion, stimulated by
-those in harmony; those discordant, lose cogency and inhibit. So by its own workings belief is limited
-and determined for you. The majority of our actions can be traced back to a subconscious desire (for
-freedom) in conflict with habit, an obedience to inherent fatalism which hangs on "good and bad"
-actions already committed (in past existence) against a preserved morality11 and whose reaction gives
-expression as spontaneity, involuntariness, autonomy, the deliberate, etc., as the chance arises. The
-rest is due to a conflicting traditional moral doctrine that has become constitutional (partly adopted
-to govern and time this reaction). In its origin, an idea of what was then considered conveniently
-good and bad . . . . To maximize pleasure by an arbitrary compromise of abstention and performance
-of desire feared. Assimilated by the deceit of its divine origin, its tenets are reward for obedience,
-punishment for transgression, both holding good for all time (this world and another). This moral
-code is a dramatised burlesque of the conceptive faculty, but is never so perfect or simple in that it
-allows latitude for change in any sense, so becomes dissociated from evolution, etc; and this divorce
-loses any utility and of necessity for its own preservation and the sympathy desired, evolves
-contradictions or a complication to give relationship. Transgressing its commandments, dishonesty
+自然な信念とは、「経験されたこと」によって反応し、交互に支配しあう直観的な衝動である。すべての事物は、自身の明確な感情を通じて他のものと結びつこうとし、それが調和するものに刺激され、調和しないものは力を失い、抑制される。こうして信念は、その仕組みによって自ら制限され、あなたに定められることになる。私たちの行動の大半は、「自由への潜在的な欲望」と「習慣」との葛藤に由来しており、それはまた「すでに犯した善悪の行為（前世において）」に対する内在的な宿命論への従属でもある。そしてその宿命論は、保持された道徳観に従いながら、「自発性」「無意識性」「自主性」「意図的な選択」といったかたちで、状況に応じて表出するのだ。
+
+残りの信念体系は、伝統的な道徳教義との葛藤に由来するものであり、それはすでに「体制の一部」となって反応や行動のタイミングを管理しようとしている。もともとは、「当時の都合」によって便宜的に定義された〈善〉と〈悪〉の観念だった。その目的は、欲望の「抑圧」と「実行」との間で恣意的に折り合いをつけることで快楽を最大化しようとするものであり、同時にその欲望を恐れている。これらは「神聖な起源」を持つかのように見せかけられ、人々に受け入れられてきた。この道徳コードは、「従順には報酬を、違反には罰を」という原則を基盤としており、それが「この世界」と「来世」の両方に当てはまるとされている。だが実際には、これは「概念形成能力（コンセプティヴ・ファカルティ）」を誇張し演出した茶番劇であり、決して完璧でも単純でもない。変化の余地を残すことができないため、この道徳体系は進化から切り離され、機能を失っていく。そしてその存続と共感を得るために、矛盾や複雑化という形で関係性をでっち上げざるを得なくなるのだ。
+
+Transgressing its commandments, dishonesty
 shows us its iniquity, for our justification; or simultaneously we create an excuse or reason for the sin
 by a distortion of the moral code, that allows some incongruity. (Usually retaing a few unforgiveable
 sins- and an unwritten law.) This negative confession is a feigned rationalism that allows adventitious
