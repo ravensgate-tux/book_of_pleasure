@@ -25,16 +25,19 @@ exposes the desire. Conscious desire is non-attractive. The mind quiet and focus
 external images does not distort the sense impressions (there is no hallucination; it would end in
 imaginative fulfilment), but magnifies the existing desire, and joins it to the object in secret.
 
-- 18: The means being simpicity, he is comparitively free to make his own
+>18: The means being simpicity, he is comparitively free to make his own
 qualifications and difficulties, i.e., many retirements are absurd and at once prove
 his incapacity, the non existence of what he sets about to prove. He at once sets his
 limit and servility.
-- 19: Just a natural desire.
+
+>19: Just a natural desire.
 The Book of Pleasure Page 19 of 27
 http://arcaneadvisors.com/archives/Spare/book_of_pleasure.htm 2/10/2009
-- 20: This is a short formula for those whose belief is full in the law, are house holders
+
+>20: This is a short formula for those whose belief is full in the law, are house holders
 following their desires. The formula holds good for any purpose.
-- 21: Illustration, the loss of faith in a friend, or an union that did not fulfill
+
+>21: Illustration, the loss of faith in a friend, or an union that did not fulfill
 expectations.
 
 **Casting the Shadow.**
@@ -53,14 +56,15 @@ and death, becoming a presiding obsession, control having been given to a prior 
 over-conscious of that through it momentarily finding freedom from its native law; thus generating
 double personality (Insanity).
 
-- 22: If it becomes physical, let him imagine another's body, he has that sigil or its
+>22: If it becomes physical, let him imagine another's body, he has that sigil or its
 emergency. This, although not his original purpose, he will and exceedingly amiable.
-- 23: Laughter in this case.
+
+>23: Laughter in this case.
 
 By these means there is no desire beyond fulfilment, no accomplishment too wonderful, depending
 on the amount of free belief 24.
 
-- 24: It may be done by localizing desire to one sense, hence by this formula using the
+>24: It may be done by localizing desire to one sense, hence by this formula using the
 ear as the vehicle, one hears the most transcendental music ever conceived, being the
 voices and harmony of every conceivable animal and human existence and so with
 each sense.
@@ -274,13 +278,14 @@ form that has the virtue of preventing any thought and association on that parti
 magical time), escaping the detection of the Ego, so that it does not restrain or attach such desire to its
 own transitory images, memories and worries, but allows it free passage to the sub-consciousness.
 
-- 25: By this system, you know exactly what (you believe) your Sigil must relate to. If you
+>25: By this system, you know exactly what (you believe) your Sigil must relate to. If you
 used any form stupidly, you might possibly "conjure up" exactly what you did not
 want- the mother of insanity, or what always happens then, nothing at all. This being
 the only system, any result other than by it is accidental. Also you do not have to dress
 up as a traditional magician, wizard or priest, build expensive temples, obtain virgin
 parchment, black goat's blood, etc., etc., in fact no theatricals or humbug.
-- 26: Free belief or energy, i.e., a disappointed desire, not yet an obsession.
+
+>26: Free belief or energy, i.e., a disappointed desire, not yet an obsession.
 
 Sigils are made by combining the letters of the alphabet simplified. Illustration27, the word "Woman"
 in Sigil form is (example) or (example) or (example) etc. The word tiger (example) or (example) etc.,
@@ -304,7 +309,7 @@ The strength of a Tiger (same as said above)
 
 Combined as one Sigil (example) or (more simplified example).
 
-- 27: There are six methods of Sigils employed in this book, each corresponding to
+>27: There are six methods of Sigils employed in this book, each corresponding to
 different strata. The one shown here is illustrative and the fundamental idea of them
 all, from which anyone can evolve his own system. Conditions, etc., or necessity
 subsequently evolve themselves. Also a person has more power of creation and
@@ -337,7 +342,7 @@ particular existence and knowledge gained by it) relative to the desire, but not
 experience which was recent. Knowledge is obtained by the sensation, resulting from the unity of the
 desire and Karma. Power, by its "actual" vitalization and resurrection.
 
-- 28: This is not the passivity of mediumism which opens the mind to what is called
+>28: This is not the passivity of mediumism which opens the mind to what is called
 external influence- disembodied energy usually having no better purpose than to raptables.
 There are many means of attaining this state of vacuity: I mention the most
 simple, there is no need for crucifixion. Drugs are useless. Smoking and laziness the
