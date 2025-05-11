@@ -145,7 +145,7 @@ suffering hence by making this emotion a "mental state" at the time of unity13 h
 pleasure, suffers them simultaneously and by the "not necessity" of his belief, his conception
 transcends this world and reaches the absolute ecstasy. There is no place where pain or death can enter.
 
-- 13: Of Sex, indeed of everything.
+>13: Of Sex, indeed of everything.
 
 The idea of God is the primordial sin, all religions are evil. Self-love is its own law, which may be
 broken with impunity, being the only energy that is not servile, serving its ever-ready purpose. Surely
