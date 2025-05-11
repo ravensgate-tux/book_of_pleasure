@@ -36,9 +36,10 @@ and death. These four principles are one and the same-the conception considered 
 "self" or consciousness-hence they may be blended into unity and Symbolized. One form made by
 two, that is three-fold and having four directions.
 
-- 3: About this "Self"; all conception is the dual principle, the law which is its
+>3: About this "Self"; all conception is the dual principle, the law which is its
 conception.
-- 4: The unmodified sex principle refracted through the dual principle emanates the
+
+>4: The unmodified sex principle refracted through the dual principle emanates the
 infinite variety of emotions or sexualities, which may be called its ramifications.
 
 **The Transcendental Law, the Law and Testament of the "New."**
@@ -80,7 +81,7 @@ mother of all things. Therefore believe all experience to be illusion, and the l
 pervades an object both in and out, similarly within and beyond this ever-changing cosmos, there is
 this secondless principle.
 
-- 5: By scores of incarnations, our eventual "self" is derived from the attributes with
+>5: By scores of incarnations, our eventual "self" is derived from the attributes with
 which we endow our God, the abstract Ego or conceptive principle. All conception is
 a denial of the Kia, hence we are its opposition, our own evil. The offspring of
 ourselves, we are the conflict of what we deny and assert of the Kia. It would seem as though
