@@ -179,27 +179,24 @@ Spareが提唱する**「シジル」とは、
 >26：部分的に自由な信念（partially free belief）とは何か<br>
 >ここでいう信念（belief）やエネルギーとは、まだ執着や妄念として固定されていない「未満状態」の欲望を指す。つまり、失望（disappointed）したが、まだ執着（obsession）になっていない欲望であり、それゆえに「シジルによる転送」が可能なのだ。
 
-Sigils are made by combining the letters of the alphabet simplified. Illustration27, the word "Woman"
-in Sigil form is (example) or (example) or (example) etc. The word tiger (example) or (example) etc.,
-etc. The idea being to obtain a simple form which can be easily visualised at will, and has not too
-much pictorial relation to the desire. The true method has a much greater virtue, which cannot be
-explained briefly, being the secret of thought form, as degrees of suggestion, and what exactly is in a
-name. We have now agreed as to how a Sigil is made, and what virtue it has. Verily, what a person
-believes by Sigils, is the truth, and is always fulfilled. This system of Sigils is believed by taking it up
-as a hobby at a time of great disappointment or sorrow. By Sigils I have endowed fools with wisdom,
-made the wise fools, giving health to the sick and weak, disease to the strong, etc. Now, if for some
-purpose, you wanted the strength of a tiger- you would make a sentence such as:- "This my wish to
-obtain the strength of a tiger." (Message from person who typed up this file: In constructing the
-sentence of desire, beginning with "This my will," has been said by some to be more efficacious.)
-Sigilized this would be:-
+シジルとは、アルファベットの文字を簡略化・結合して作られる図形である。たとえば「Woman（女性）」という語をシジル化するなら、いくつかの例（図示）が考えられる。同様に「Tiger（虎）」という語も複数の簡略図として表すことができる。ここで重要なのは、視覚的にすぐ思い浮かべられる形であること、そしてその図形が欲望と過度に似すぎていないこと。
+つまり、図形は抽象的である必要がある。シジルを作る真の技法には、さらに高度な効能がある。これは短くは説明できないが、「思考のかたち」を扱う秘儀であり、「名前に込められた暗示の段階構造」と深く関係している。
 
-This my wish (illustrative example of this part of the sentence)
+ここまでで、シジルの作成法とその効力について、われわれはひとまず合意に達した。人がシジルを通じて信じるものは、必ず実現する──それが「真実」となる。このシジルの体系は、大きな失望や悲嘆に見舞われたときに「趣味」として始めるのが理想的である。私はこのシジル技法を通じて、愚者に知恵を授け、賢者を愚者に変え、病者を癒し、強者に病を与えたこともある。たとえば「虎のような強さが欲しい」と願うなら、次のような文を作るとよい。
 
-To obtain (ditto)
+“This my wish to obtain the strength of a tiger.”（私の願い──虎の力を得ること）
 
-The strength of a Tiger (same as said above)
+なお、「This my will」から始めると、より効果的であるという指摘もある。
 
-Combined as one Sigil (example) or (more simplified example).
+この文を構成要素に分け、それぞれを簡略化して図案化（シジル化）する：
+
+- This my wish → （図例）
+
+- to obtain → （図例）
+
+- the strength of a tiger → （図例）
+
+これらを統合して1つのシジルにする（例示あり）。さらに簡略化した形（図）も考えられる。
 
 - 27: There are six methods of Sigils employed in this book, each corresponding to
 different strata. The one shown here is illustrative and the fundamental idea of them
