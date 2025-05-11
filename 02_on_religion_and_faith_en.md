@@ -105,10 +105,10 @@ of my doctrine, they obtain tolerable satisfaction, whereas mine is complete. Le
 is not strong for the great work. In freedom he might be lost. So fledge your wings fearlessly, ye
 humble ones!
 
-- 1: All means of locomotion, machinery, governments, institutions, and everything
+>1: All means of locomotion, machinery, governments, institutions, and everything
 essentially modern, is vital symbolism of the workings of our mind, etc.
 
-- 2: The symbol of justice known to the Romans is not symbolic of Divine, or our
+>2: The symbol of justice known to the Romans is not symbolic of Divine, or our
 justice, at least not necessarily or usually. The vitality is not exactly like water-nor
 are we trees; more like ourselves, which might incidentally include trees somewhere
 unlearnt-much more obvious in our workings at present.
