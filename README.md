@@ -16,7 +16,7 @@
 
 
 <div align="center">
- <img src="death_posture.jpg" width="300">
+ <img src="death_posture.jpg" width="200">
 </div>
 
 <div align="center">
