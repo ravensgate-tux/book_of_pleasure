@@ -39,7 +39,7 @@
 
 - [06 停滞した自己催眠が生み出す、濁った敵（神性についての独白）](06_soliloquy_on_godhead.md)
 
-- [07 Preface to Self-Love](07_on_duality_and_ecstasy.md)
+- [07 自己愛を語る前に](07_on_duality_and_ecstasy.md)
 
 - [08 The Complete Ritual and Doctrine of Magic](08_closing_remarks.md)
 
