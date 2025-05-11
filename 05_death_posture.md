@@ -6,15 +6,9 @@
 
 🇯🇵 死の姿勢 (Death Posture)
 
-Ideas of Self in conflict cannot be slain, by resistance they are a reality- no Death or cunning has
-overcome them but is their reinforcement of energy. The dead are born again and again lie in the
-womb of conscience. By allowing maturity is to predicate decay when by non-resistance is
-retrogression to early simplicity and the passage to the original and unity without idea. From that idea
-is the formula of non-resistance germinating "Does not matter- please yourself."
-The conception of "I am not" must of necessity follow the conception of "I am," because of its
-grammar, as surely in this world of sorrow night follows day. The recognition of pain as such, implies
-the idea of pleasure, and so with all ideas. By this duality, let him remember to laugh at all times,
-recognize all things, resist nothing; then there is no conflict, incompatibility or compulsion as such.
+自己の観念が互いに衝突しているかぎり、それらは抵抗によって実在し続ける。いかなる死や策略も、それを打ち破ることはできず、むしろそれらのエネルギーを増幅させるに過ぎない。死者は再び生まれ、良心の子宮の中に横たわる。成熟を許すことは、やがて朽ちることを前提とすることであり、非抵抗によってこそ、初源の単純さへと回帰し、想念なき統一へと通じる。この「想念」から、非抵抗の公式──「気にするな。自分を満足させろ」という種が芽生える。
+
+「私は在る（I am）」という想念があれば、文法的必然として「私は在らず（I am not）」という観念が続くように、この苦しみの世界では、昼のあとには夜が来る。痛みを痛みと認識することは、快楽という観念を前提にしており、この構造はあらゆる観念において同様である。この二元性のもとで、彼は常に笑うことを忘れず、すべてを認め、何ものにも抗わずにいれば──そこに葛藤も、不一致も、強制も存在しなくなるのだ。
 
 **Transgressing Conception by a Lucid Symbolism.**
 
