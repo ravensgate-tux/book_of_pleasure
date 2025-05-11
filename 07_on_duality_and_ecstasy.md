@@ -10,6 +10,8 @@ Spareが提唱する「ニーチャー＝ニーチャー（Neither-Neither）」
 
 つまりこれは、「魔術的メタ・キャンセル機構」ともいえる思想の“核心的レイヤー”であり、Spareの教え全体を支える構造的アルゴリズムである。
 
+📝注釈：Spareにおける「二」＝分割の原理
+Spareは、「法（Law）」や「道徳体系」が常に**“二（Duality）”＝分割によって生まれると説く。この分割がさらなる複雑性や体系（millions）を生む構造は、ちょうど受精卵が成長し、分化し、成人へと至るプロセス**にも似ている。だがSpareにとっては、そうした発展は常に「本来の一（KIA）」からの逸脱であり、分割しないままの“全体性”にこそ自由と至福が宿ると考える。
 
 ---
 
@@ -85,49 +87,73 @@ KIAは進化の原因でもなければ、時間にも属さない。意識や�
 
 「偶然による遊戯（Chance in sport）」──それは預言ではない。だが、そこから私たちは「熟達」を得た。それだけで、十分なのだ。
 
-Prepare for the Eternal, revert to simplicity and you are free. What man can give without
-impulse? Only he who has complete sexuality. The highest goodness is self-nourishment. What are
-we going to include as self? Perfect charity acquires, hence it benefits all things by not giving. What
-man can have faith without fear? Only he who has no duty to perform. When faith perishes duty to
-moral doctrines perishes, we are without sin and endure for ever in all-devouring love. What man can
-know with certainty? Only he who has effaced the necessity of learning. When teachers fall out, what
-is the use of learning from them? The wise are not contentious and have no dogma to expound . . . .
-rather are they silent as a new-born babe in feeding. What teacher can show the source of wisdom? It
-is because I know without learning; I know the source and can convey lessons without teaching.
-Knowledge is but the excrement of experience: experience its own repetition. The true teacher
-implants no knowledge but shows him his own superabundance. Keeping his vision clear he directs
-or leads him as a child to the essential. Having shown him the source of wisdom, he retires before
-gratitude or sentiment sets in, leaving him to fertilize as he wishes. Is not this the way of Heaven? He
-who trusts to his natural fund of genius, has no knowledge of its extent and accomplishes with ease,
-but directly he doubts, ignorance obsesses him. Doubt fertilizes in the virgin soil. He is no longer
-fearless but a coward to difficulties, his very learning is fear. The difference between genius and
-ignorance is a degree of fear. The beginning of wisdom is fear of forethought the reception of
+永遠への備えとは──シンプルに立ち返ること。それによって、あなたは自由になる。
 
-knowledge in learning. Children doubt, and abhor learning. Why, even the affection of courage
-results in cleverness! The difference between good and evil is a matter of profundity. Which is nearer
-you, self-love and its immorality or love and morals? Not conscious of desert the compeer of Heaven,
-and constant happiness in wisdom is the capacity of direction. From self-glorification, from selfexaltation
-we rise superior to the incapacity of disquieting fear: the ridiculer to destruction of
-humility in repentance. This "self-love" that does not give but is glad to receive is the genuine
-opportunity for freedom from covetousness, from the militant amusement of Heaven. He who
-subordinates animal instincts to reason, quickly loses control. Are not the animals we see in circuses
-trained by torture? And do not the animals reared in love, slay their master? The wise embraces and
-nourishes all things, but does not act as master. Only when passions are ruled by foreign environment
-are they dangers. Control is by leaving things to work out their own salvation- directly we interfere
-we become identified with and subject to their desire. When the Ego sees self-love- there is peace it
-becomes the seer. Directly we desire, we have lost all; "we are" what we desire, therefore we never
-obtain. Desire nothing, and there is nothing that you shall not realise. Desire is for completion, the
-inherent emotion that it is "all happiness," all wisdom, in constant harmony. But directly we believe,
-we are liars- and become identified with pain, yet pain and pleasure are one and the same. Therefore
-believe nothing, and you will have reverted to a simplicity which childhood has not yet attained. The
-fool asks how? as we must believe in pleasure and pain. Now if we could suffer them simultaneously
-(pain and pleasure) and hold fast to a principle that ascends, that allows the Ego vibration above
-them, should we not have reached the ecstasy? Now the belief is the "Ego," yet separates it from
-Heaven as your body separates you from another's. . . . . Therefore by retaining the belief in the "not
-necessity" (when conceiving), the Ego is free. The emotion of laughter is exhaustion, the early
-suffering hence by making this emotion a "mental state" at the time of unity13 he unites pain and
-pleasure, suffers them simultaneously and by the "not necessity" of his belief, his conception
-transcends this world and reaches the absolute ecstasy. There is no place where pain or death can enter.
+>衝動なしに「与える」ことができる者がいるか？完全なセクシュアリティ（＝自己充足）を持つ者だけだ。
+
+>最も高い“善”とは、自己を養うことである。
+
+では、「自己」とは何を含むべきか？──完全な施し（Perfect charity）とは、与えずに得ることであり、そのことですべてを益するのだ。
+
+>恐れなくして「信仰」を持てる者がいるか？なすべき義務を持たぬ者のみが、それを持てる。
+
+信仰が消えれば、道徳律への義務も消え去る。
+
+>そのとき私たちは罪から解放され、すべてを呑みこむ愛のなかで永遠に生きる。
+
+>確信を持って「知る」ことができる者は誰か？学ぶ必要を捨てた者だけである。
+
+教師たちが互いに争っているなら、学ぶことに意味などあるだろうか？賢者は争わず、教義も語らない。──むしろ彼らは、乳を吸う新生児のように静かである。
+
+>真の教師は「知識」を与えない。彼は、あなたのなかにある“過剰な豊かさ（superabundance）”を気づかせるのだ。
+
+
+情動（パッション）が“外部環境”に支配されるとき、それらは初めて「危険」となる。
+
+>統御とは、「手放すこと」である。すべてを自らの救済に委ねたとき、物事は調和に向かう。
+
+干渉すればするほど、私たちはその対象の欲望と同一化してしまい、従属してしまう。
+
+>エゴが〈自己愛〉を見るとき、そこに“平安”が訪れる。エゴは観察者＝“seer”へと変化するのだ。
+
+だが──欲望が芽生えた瞬間、私たちはすべてを失う。
+
+>なぜなら私たちは「欲するものそのもの」になるから。ゆえに、それを“手に入れる”ことは決してできない。
+
+>何も欲するな──　そうすれば、何ひとつとして手に入らないものはない。
+
+欲望とは「完成」への衝動である。そこには常に、「これこそが幸福であり、知恵であり、調和である」という情動が備わっている。だが信じた瞬間に、人は“嘘つき”となる。痛みと同一化し、苦痛と快楽は、一つであるにもかかわらず、それを分けてしまう。
+
+>ゆえに──「何も信じるな」。そのとき人は、幼児ですら達しえぬ“単純さ”へと還る。
+
+愚か者はこう問うだろう──
+
+>「じゃあ、どうやって快楽や苦痛を信じずにいられるんだ？」
+
+ならば、こうせよ。
+
+>痛みと快楽を“同時に”体験し、
+そこに昇る“原理（プリンシプル）”に意識を保て。
+
+それができたとき、あなたは“至高のエクスタシー”に達しているはずだ。信念こそが「エゴ」そのものである。だが信念は、「天国」とエゴを隔ててしまう。それはまるで、あなたの身体が、他人の身体と分かれているように。では、どうすればいいのか？
+
+>「必要ではない（not-necessary）」という信念を保て。
+
+「笑い」という感情は、疲労から来る──その“初期の苦痛”を昇華したものである。ゆえに...
+
+>統合（Unity）の瞬間に、　“笑い”を「精神状態」として活性化させること。
+
+すると...
+
+- 苦痛と快楽を同時に引き受けることができる。
+
+- 信念の「必要でない」というスタンスによって、
+
+- あなたの想念（コンセプション）はこの世界を超越し、絶対的なエクスタシーに至る。
+
+>そこは、痛みも死も入りこめない場所である。
+
+
 
 - 13: Of Sex, indeed of everything.
 
