@@ -42,6 +42,9 @@ Spareが提唱する**「シジル」とは、
 「願いを形にして、意識の外に追いやれ」
 という、ケイオスマジックの核心に迫る教義なのです。
 
+
+📝補足：このコウモリに翼が生えると言う説明は、進化論的アイデア（欲望が潜在意識を通じて形態を変える）であり、コリン・ウィルソンの『オカルト』における進化論（例：キリンの首）とも共鳴する。ウィルソンはスペアの著作を読んでいた可能性がある。
+
 ---
 
 🇯🇵 魔術の儀式と教義──完全版
@@ -160,50 +163,21 @@ Spareが提唱する**「シジル」とは、
 
 たとえば、コウモリが翼を持ったのは、単に「飛びたい」という欲望が強かったからではなく、その欲望が潜在意識の深層にまで染み込んでいたからだ。逆に、私たちのように飛びたいと表層意識で願う者は、機械を使わなければ飛ぶことができない。天才というものには、往々にして「仮説」や「趣味」がある。それは表層意識を適度に誤魔化し、潜在意識の自発的表現を邪魔しないようにするためのトリックだ。レオナルド・ダ・ヴィンチの数学や技術への興味も、そのような意識の「欺き（sigil）」である。私たちの人生は、自分を支配する「カルマ（業）」の象徴に満ちている。 無意味な装飾や過剰な衣服が人々を喜ばせるのは、彼らがそこに自分の「業」の象徴を見出すからであり、それこそがカルマの位置を示す鍵となる。「王に戴冠させる」という儀式の象徴は、「神に似た存在」としての人間が、潜在意識の最下層──一細胞レベルの根源に到達したことを意味する。だが実際の王はその理想の象徴にすぎず、現実ではない。真に「王」となる者は、分割される以前の「二」なる原理を、極限の単純さにおいて理解した者である。
 
-By Sigils and the acquirement of vacuity, any past incarnation, experience, etc., can be summoned to
-consciousness. It may even happen in sleep in the form of dreams, but this means is very difficult.
-(Chapters on day and night dreaming for pleasure omitted.)
+シジルと「空（くう）」の習得によって、過去の転生や経験を意識に召喚することができる。眠っているときに夢として起こることもあるが、この方法は非常に困難である（「昼と夜の夢を楽しむための章」は省略）。完全な「空（くう）」の状態は、道徳やコンプレックスに縛られた者──つまり、信念の中心が自己愛でない者──にとっては困難かつ危険である。だからこそ、シジルのような技法が必要なのだ。あらゆる儀式、セレモニー、条件などは、すべて任意のものであり（自分自身を喜ばせるためのもの）、しばしば妨げや混乱の原因となる。それらの起源は遊戯にあり、後に「真理を知られないようにするため」、または「無知を誘発するため」に発展した。そして例によって、最も騙されたのは高位の祭司たち自身である。他者を欺く者は、自分自身をさらに深く欺くのだ。だからこそ、派手な衣装、儀式、引きこもりの修行、ばかげた条件などを愛する者を見れば、彼がペテン師であると見抜けるだろう。彼らの教義は、虚勢を張ること、名声を渇望する臆病さに過ぎない。彼らが掲げる基準は、すべて「不要なもの」であり、ゆえに失敗は確実なのだ。
 
-Total vacuity is difficult and unsafe for those governed by morality, complexes, i.e., whose belief is
-not entirely self-love. Hence this desideratum of Sigils, etc.
+こうして、多少の才能がある者も、彼らの教えによってすぐにそれを失ってしまう。彼らはただ表面的なことを教え込み、増殖させるだけである。もし私が教師であったなら、弟子に「自分よりも知らぬ存在」として接することはないだろう。弟子は「弟子である」という意識を持てないだろう。彼はゆっくりと同化し、自分が学んでいることにも気づかず、致命的な失敗を繰り返すこともないだろう。恐れを持たずに、楽に達成することができるだろう。唯一可能な「教え」とは、人が「自分自身の知恵から学ぶ方法」を示し、「自らの無知と失敗」を活かす方法を教えることである。正しさ（righteousness）によって、その人の視野や意志を曇らせてはならない。
 
-Know all ritual, ceremony, conditions, as arbitrary (you have yourself to please), a hindrance and
-confusion; their origin was for amusement, later for the purpose of deceiving other from knowing the
-truth and inducing ignorance; and as always happens their high priests were the more deceived
-themselves. He who deceives another deceives himself much more. Therefore know the Charlatans by
-their love of rich robes, ceremony, ritual, magical retirements, absurd conditions, and other stupidity,
-too numerous to relate. Their entire doctrine a boastful display, a cowardice hungering for notoriety;
-their standard everything unnecessary, their certain failure assured. Hence it is that those with some
-natural ability quickly lose it by their teaching. They can only dogmatise, implant and multiply that
-which is entirely superficial. Were I a teacher I should not act as master, as knowing more, the pupil
-could lay no claim to discipleship. Assimilating slowly, he would not be conscious of his learning, he
-would not repeat the vital mistake; without fear he would accomplish with ease. The only teaching
-possible is to show a man how to learn from his own wisdom, and to utilise his ignorance and
-mistakes. Not by obscuring his vision and intention by righteousness.
+**シジル──保護された信念**
 
-**Sigils. Belief with Protection.**
+**魔術的憑依（Magickal Obsession）について**
 
-**Magickal Obsession.*:
+いま、私はシジルの創造と使用方法について説明しよう。何の難しさもない。すべては驚くほど純粋で明晰なのだ［25］。私は愚かな信奉者たちへの愛ゆえに、これを発明した。快楽・知識・力──どんな欲望であっても、それが「自然な」形で表現できないとき、シジルとその手法によって、潜在意識の力を通じて欲望を成就させることができる。シジルとは、部分的に自由な信念を有機的な欲望と結びつけ、その欲望を潜在意識の中で保持・運搬し、最終的にはエゴに再帰させるための装置である。あらゆる思考は、正しい関係性のもとで形（form）として表現可能である。シジルとは思考のモノグラム（単体記号）であり、エネルギーを制御するための記号である（すべての紋章、家紋、モノグラムはシジルであり、それに対応するカルマを象徴している）。また、欲望を数理的に象徴化し形を与える手段でもあり、それによって“魔術の時間”においてその欲望を一切思考せずに済むようになる。これによりエゴによる干渉を回避し、その欲望が記憶・イメージ・不安といった一時的な心象に結びつけられることなく、潜在意識へと自由に流れ込むことが可能になる。
 
-I will now explain their creation and use; there is no difficulty about it, how pure and clear it all is 25.
-Out of love for my foolish devotees I invented it. All desire, whether for Pleasure, Knowledge, or
-Power, that cannot find "Natural" expression, can by Sigils and their formula find fulfilment from the
-sub-consciousness. Sigils are the means of guiding and uniting the partially free belief26 with an
-organic desire, its carriage and retention till its purpose served in the sub-conscious self, and its means
-of reincarnation in the Ego. All thought can be expressed by form in true relation. Sigils are
-monograms of thought, for the government of energy (all heraldry, crests, monograms, are Sigils and
-the Karmas they govern), relating to Karma; a mathematical means of symbolising desire and giving it
-form that has the virtue of preventing any thought and association on that particular desire (at the
-magical time), escaping the detection of the Ego, so that it does not restrain or attach such desire to its
-own transitory images, memories and worries, but allows it free passage to the sub-consciousness.
+>25：このシステムの唯一性について<br>
+>この手法を使えば、自分のシジルが何を指すべきか、つまり自分が何を信じているかを明確に把握することができる。　逆に、もしシジルの形をいい加減に（stupidly）使った場合、望んでいなかったもの（たとえば狂気の母体）を召喚してしまうか、あるいはまったく何の効果も現れない。本書によれば、このシステム以外による成果はすべて偶発的なものであり、「儀式魔術師の扮装」「高価な神殿や処女羊皮紙」「黒ヤギの血」などといった伝統的な演出（theatricals）や見せかけ（humbug）は一切不要だと明言している。この点が、本書の「実用的な個人魔術」の精神をよく表している。
 
-- 25: By this system, you know exactly what (you believe) your Sigil must relate to. If you
-used any form stupidly, you might possibly "conjure up" exactly what you did not
-want- the mother of insanity, or what always happens then, nothing at all. This being
-the only system, any result other than by it is accidental. Also you do not have to dress
-up as a traditional magician, wizard or priest, build expensive temples, obtain virgin
-parchment, black goat's blood, etc., etc., in fact no theatricals or humbug.
-- 26: Free belief or energy, i.e., a disappointed desire, not yet an obsession.
+>26：部分的に自由な信念（partially free belief）とは何か<br>
+>ここでいう信念（belief）やエネルギーとは、まだ執着や妄念として固定されていない「未満状態」の欲望を指す。つまり、失望（disappointed）したが、まだ執着（obsession）になっていない欲望であり、それゆえに「シジルによる転送」が可能なのだ。
 
 Sigils are made by combining the letters of the alphabet simplified. Illustration27, the word "Woman"
 in Sigil form is (example) or (example) or (example) etc. The word tiger (example) or (example) etc.,
