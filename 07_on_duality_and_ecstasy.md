@@ -71,19 +71,19 @@ KIAは進化の原因でもなければ、時間にも属さない。意識や�
 人はいつだって「意志の真理（The Will）」としてこれを信じている。──信じているのは「対象」ではなく、「意志そのもの」だ。なぜなら、“目的のための手段”とは、果てしない「手段の進化」でしかないからだ。この驚くほど単純な境地においては、「知恵の始まり」も「終わり」も存在しない。どんな事物にも始まりも終わりもない。だから、それが「概念」や「知性」に関連づけられることなど──あり得ないのだ。
 
 
-** 道徳としての自己愛、そして「徳」としての自己愛 **
+**道徳としての自己愛、そして「徳」としての自己愛**
 
-The criterion of action, is freedom of movement, timeliness of expression, pleasuring. The value of a
-moral doctrine is in its freedom for transgression. Simplicity I hold most precious. Are not the most
-simple things in the world the most perfect, pure, innocent, and their properties the most wonderful?
-Hence it is the source of wisdom. Wisdom is exactly happiness. In love pleasuring myself necessarily
-without excuse. Is this not perfection? Actions would appear unfathomable and incomprehensible,
-did they exhibit conformity to the great purpose. There are few who can attain to this! Who has no
-shame? Ecstasy in satisfaction is the great purpose. Freedom from the necessity of law, realisation by
-the very wish, is the ultimate goal. Law depends on two, two is uberty, millions . . . . Law is
-complicated. The second did not agitate, the first did not determine, nor was it compelled or
-proffered. Chance in sport is not prophecy; by it we have gained proficiency, sufficient to determine.
-. . . .
+行動の基準とは──「自由に動けること」「タイミングの良さ」「悦びをもたらすこと」である。そして、道徳が価値を持つのは──それを破る自由があるときだ。わたしは「単純さ（simplicity）」を、何よりも大切に思う。世界で最もシンプルなものたちは、最も完全で、最も純粋で、最も無垢で、そしてその性質は──しばしば最も驚くべき力を持つ。ゆえにそれらは叡智の源泉なのだ。「叡智」とは、まさに「幸福」そのものである。
+
+>「愛において、わたしは言い訳なく“自分を喜ばせる”──
+　これこそが“完全”ではないか？」
+
+この宇宙の“大いなる目的”に沿っているように見える行動こそ、逆に最も深淵で不可解なものに映る。──それを成し遂げられる者は、ほとんどいない！誰が「恥」を持たないでいられるだろうか？
+だが、満足の中にあるエクスタシーこそが「大いなる目的」なのだ。法からの自由。「願ったことがそのまま実現される」こと。──これこそが、最終的なゴールなのである。“法（Law）”とは「二（Duality）」に依存する。「二」はさらに多産性（uberty）を生み、やがては無数（millions）の枝分かれを起こす……。ゆえに、「法」とは常に複雑なものである。
+
+>最初のもの（One）は、何も定めなかった。二番目のもの（Two）は、何も動かさなかった。それは命じられたのでもなく、強制されたのでもなかった。
+
+「偶然による遊戯（Chance in sport）」──それは預言ではない。だが、そこから私たちは「熟達」を得た。それだけで、十分なのだ。
 
 Prepare for the Eternal, revert to simplicity and you are free. What man can give without
 impulse? Only he who has complete sexuality. The highest goodness is self-nourishment. What are
