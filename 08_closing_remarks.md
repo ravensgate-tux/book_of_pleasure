@@ -43,7 +43,7 @@
 
 快楽も冒険も乏しい小心者たちよ──己の目的すら忘れ、あら探しに明け暮れ、強欲で、罪深く、女なしでは生きられず、苦痛なしでは快楽を感じられない。臆病で、移り気で、病んで、干からび、他者に依存し、残酷で、騙されやすく、そして嘘つき──最も堕落した人間たちよ！だが、聞くがいい。ああ、我が主よ、我が愛しき〈自己〉よ──私はいま、**「あの最も秘密の酒場」**のことを語ったのだ。そこは、情熱が青春の終わりとともに向かう場所。誰であれ、その扉を叩きさえすれば、無償にして万人に恩恵をもたらす恍惚の蜜（ネクター）を味わえる。それは、誰ひとり傷つけることのない、もっとも歓喜に満ちた滋養なのである。
 
-**Note on the Difference of Magical Obsession (Genius) and Insanity.**
+**魔術的憑依（天才）と狂気の違いについての覚え書き**
 
 MAGICAL obsession is that state when the mind is illuminated by sub-conscious activity evoked
 voluntarily by formula at our own time, etc., for inspiration. It is the condition of Genius.
