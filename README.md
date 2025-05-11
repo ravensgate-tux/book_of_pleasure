@@ -19,8 +19,7 @@
  <img src="book_pic.png" width="500">
 </div>
 
----
-
+#### 出典：『The Book of Pleasure』Secret Fire Publishing版 表紙より引用---
 
 ## 🗂 目次
  
