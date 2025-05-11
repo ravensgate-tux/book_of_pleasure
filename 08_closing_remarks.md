@@ -42,8 +42,6 @@ Spareが提唱する**「シジル」とは、
 「願いを形にして、意識の外に追いやれ」
 という、ケイオスマジックの核心に迫る教義なのです。
 
-
-
 ---
 
 🇯🇵 魔術の儀式と教義──完全版
@@ -134,22 +132,23 @@ Spareが提唱する**「シジル」とは、
 
 つまり──否認も信仰も、それを変えることはできない。むしろそれらは、既存の信念の保存装置なのだ。だからこそ、「本物の信念」とは、意識の表層ではなく、無意識（sub-conscious）に根づいたものでなければならない。「偉大になりたい」という願望が、本当に“有機的信念”になるためには──内的空白（vacuity）の瞬間に、それを“シジル”という形に変えることが必要なのだ。いったんそれを作ったならば──「魔術的タイミング」以外でそのシジルの形を思い出してはならない。意図的に忘れようとすること（＝忘却への努力）が、そのシジルを無意識へと“流し込む”。するとそのシジル（形）は、無意識の奥底で成長・養分化され、ついには有機的に結びつく。その状態に至ったとき──それは「信念」として現実化される。そして、その者は「偉大な存在」という概念そのものになるのである。
 
-So belief becomes true and vital by striving against it in consciousness and by giving it form. Not by
-the striving of faith. Belief exhausts itself by confession and non-resistance, i.e., consciousness.
-Believe not to believe, and in degree you will obtain its existence. Timeliness depending on your
-morality, give to the poor. If the ambitious only knew it is as difficult to become incapable as it is to
-become great. They are mutual as accomplishments and equally satisfying.
+信念は、それを意識的に否定し、かつ形（シジル）として与えることによってはじめて本物として力を持つ。「信じよう」と信仰的に努力しても意味はない。むしろ、信念は“自白”や“非抵抗”──つまり意識への晒し出しによって疲弊する。ゆえにこう言おう。
 
-**The Sub-Consciousness.**
+>「信じないように信じろ──そうすれば、少しずつその信念は現れるだろう。」
 
-ALL geniuses have active sub-consciousness, and the less they are aware of the fact, the greater their
-accomplishments. The sub-consciousness is exploited by desire reaching it. So consciousness should
-not contain the "great" desire once the Ego has wished: and should be filled with an affected
-ambition for something different, not vice-versa, the inevitable penalty of cowardice lurking
-somewhere: surely not an inglorious deceit? Genius, like heroism, is a matter of bravery- you have to
-forget fear, or incapacity somehow . . . . hence its expression is always spontaneous. How simple it is
-to acquire genius- you know the means; who will take the plunge? The learning of "How" is the
-eternal "Why"- unanswered! A genius is such, because he does not know how or why.
+この逆説的な方法──「否定を通じた育成」こそが、彼の信念論の本質である。そして、信念が“現れる”タイミング（timeliness）は、あなたの「道徳性（morality）」に左右される。たとえばこう皮肉を言おう。
+
+>「貧しい者に施しを与えるべきだ──“タイミング的に”ね。」
+
+最後にこう述べよう。
+
+>「偉大になること」と「無能になること」は、等しく困難であり、等しく達成感がある。
+
+つまり、どちらも「到達すべき状態」であり、努力や信念のベクトルが違うだけで、存在論的には対等だと主張しているのだ。
+
+**無意識こそが天才を生む**
+
+すべての天才は、活性化された無意識（sub-consciousness）を持っている。そして、その事実に気づいていない者ほど、より偉大な成果をあげている。無意識は、欲望がそれに到達することで作動する。したがって、意識は「本当に望んだ欲望」を保持してはならない。エゴが一度「こうありたい」と願ったら、意識はあえて別の野心や関心ごとで満たされるべきであり、逆にそれに執着するのは、「どこかに潜む臆病さ」の現れである。──それは、卑怯な自己欺瞞ではないだろうか？天才（Genius）とは、英雄（Hero）と同じく、勇気の問題である。恐れや無力感を「なんらかの形で忘れること」が必要なのだ。だからこそ、その表現は常に“自発的（spontaneous）”に現れる。天才になるのは、実はとてもシンプルなことだ──その方法（means）は、あなたもすでに知っている。問題は、誰がその一歩を踏み出せるかなのだ。「どうすれば（How）？」という問いは、いつまでも解かれぬ「なぜ（Why）？」という問いと同じである。天才とは、自分が「どうしてそうなれたのか」を知らない人間のことである。
 
 **The Storehouse of Memories with an Ever-Open Door.**
 
