@@ -16,7 +16,7 @@
 
 
 <div align="center"; style="display: flex; gap: 50px;">
- <img src="spare_photo_relaxed_2.png" width="400">
+ <img src="spare_photo_relaxed_2.png" width="300">
  <img src="death_posture.jpg" width="300">
 </div>
 
