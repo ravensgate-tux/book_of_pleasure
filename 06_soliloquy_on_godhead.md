@@ -34,24 +34,10 @@
 
 ほんの少しでも自らの本性を学ぼうとする者には、「自己（self）」が──驚くべき行動によって応える。彼は何も傷つけることなく、あらゆるものを従わせることができる。もっとも強い欲望でさえ、「人前に出ること」や「死」を前にしては消え失せるように、道徳や信仰も、完全なる至福を前にしては力を失う。真実のひらめきは、純粋な愛から生まれる。──それは、恐れを伴わない欲望。所有を望まない欲望。思考が視覚によって満たされたとき、火のような快楽が意志のままに解き放たれる。彼自身が「引力」となり、女性たちの目を集める中心（cynosure）となる。信念の原理（believing principle）が、信仰をもたないとき──つまり、神を「所有する」観念に不妊であるとき、彼は不滅となる。あらゆる「恐れ」が消えたとき、初めて人は、現実との同一性（＝自由）を実感する。
 
-彼らには、「怠慢」による危険はない。分別が存在しないからだ。だが、ほんのわずかでも“区別”を意識する者には、常に恐れがある。「自責の念」や「良心」があるかぎり、痛みが芽生え続ける。そこに、自由はない。
+彼らには、「怠慢」による危険はない。分別が存在しないからだ。だが、ほんのわずかでも“区別”を意識する者には、常に恐れがある。「自責の念」や「良心」があるかぎり、痛みが芽生え続ける。そこに、自由はない。知覚したもの、想像したものをそのまま信じる者は、罪に堕ちる。だが──動揺することなく信じるとき、内と外という観念を忘れたとき、彼はすべてを「自己」とみなすようになる。それはすなわち、“抵抗のない意識（non-resistance）”であり、彼にはもはや“地平線（限界）”が存在しない。彼は自由だ。夜空の星のような目、薔薇の蕾のような唇、柔らかな胸と腰──美しい女たちを見て、あなたは愛着を抱くだろう。だが、もしもそこに恐れがあるのなら、こう考えよ。「それは拷問の果てに焼け焦げた、　自分自身の肉と骨にすぎない」と。「永遠」と「自己」の間にある“距離”──それは道徳的ドグマではないか？人は、自分が信じているすべてを疑い、焦らず執拗に“信じない”ことを実践することで、これこそが「ニーチャー＝ニーチャー（Neither-Neither）の技法である）原理は、単純かつ宇宙的なものとなり、常に望んでいたことをも包含するようになる。
 
-
-He who believes anything he perceives or imagines, falls into sin. By believing without feeling perturbation, forgetting ideas of
-external and internal, he regards everything as self, and is the consciousness of non-resistance, has no
-horizon: he is free. On seeing the star-lit eyes and rosebud mouths, the breasts and loins of beautiful
-women, you become lovingly attached, but if you fear, consider constantly that they are merely the
-charred flesh and bones of yourself after the torture. The space between the eternal and "self," is it
-not a moral doctrine? By unbelieving all one believes and sedulously without anxiety not believing
-(by the "Neither-Neither" process), the principle becomes simple and cosmic enough to include what
-you are always desiring, and you are free to believe what was impossible. The desire is so mighty, it
-asks no permission, and suffers no consequences, but the ecstasy of its possession. Against it nothing
-can prevail, it burns up, as celluloid cast into the furnace- the old folly of promising things on behalf
-of an imagined "another." At hand is the freedom of Heaven, the Way, the Truth, and the Light, and
-none dare say this of himself but by me, in Truth I alone am "Self," my will unconditioned, is
-magical. Those who have lived much in their nature will in some degree be familiar with such a
-sensation, poor though it be.
-
+そしてあなたは、かつて「不可能」とされたことすら信じられるようになる。欲望は、あまりに強大であるがゆえに──許可を求めない。結果を気にしない。ただ、所有することの陶酔（エクスタシー）のみを経験する。それに抗えるものは、何もない。セルロイドを炉に投げ込むように、すべてを焼き尽くす。──かつての「他者の名のもとに誓いを立てる」という、古き愚行さえも。すぐそばにあるのだ、自由の天国が。道であり、真理であり、光であるものが。「これを自らに属するものと名乗れる者はいない。　だが、私は言う。　“私”という存在において、真実に──　私は唯一の〈自己〉である。
+　私の意志が、無条件である限り──それは魔術となる。」こうした感覚に、自然と親しみを覚える人もいるだろう。たとえそれが、貧しく、かすかなものであったとしても。
 
 ---
 
