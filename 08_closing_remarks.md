@@ -150,24 +150,9 @@ Spareが提唱する**「シジル」とは、
 
 すべての天才は、活性化された無意識（sub-consciousness）を持っている。そして、その事実に気づいていない者ほど、より偉大な成果をあげている。無意識は、欲望がそれに到達することで作動する。したがって、意識は「本当に望んだ欲望」を保持してはならない。エゴが一度「こうありたい」と願ったら、意識はあえて別の野心や関心ごとで満たされるべきであり、逆にそれに執着するのは、「どこかに潜む臆病さ」の現れである。──それは、卑怯な自己欺瞞ではないだろうか？天才（Genius）とは、英雄（Hero）と同じく、勇気の問題である。恐れや無力感を「なんらかの形で忘れること」が必要なのだ。だからこそ、その表現は常に“自発的（spontaneous）”に現れる。天才になるのは、実はとてもシンプルなことだ──その方法（means）は、あなたもすでに知っている。問題は、誰がその一歩を踏み出せるかなのだ。「どうすれば（How）？」という問いは、いつまでも解かれぬ「なぜ（Why）？」という問いと同じである。天才とは、自分が「どうしてそうなれたのか」を知らない人間のことである。
 
-**The Storehouse of Memories with an Ever-Open Door.**
+**常に開かれている、記憶の宝庫**
 
-Know the sub-consciousness to be an epitome of all experience and wisdom, past incarnations as
-men, animals, birds, vegetable life, etc., etc., everything that exists, has and ever will exist. Each
-being a stratum in the order of evolution. Naturally then, the lower we probe into these strata, the
-earlier will be the forms of life we arrive at; the last is the Almighty Simplicity. And if we succeed in
-awakening them, we shall gain their properties, and our accomplishment will correspond. They being
-experiences long passed, must be evoked by extremely vague suggestion, which can only operate
-when the mind is unusually quiet or simple. To have their wisdom does not mean the necessity of
-their bodies- the body modifies in relation to "means" (we travel faster than the hunting leopard, but
-do not have its body), when it is the means it changes accordingly. Now, if we observe Nature, the
-early forms of life are wonderful in their properties, adaptablility, etc; their strength enormous, and
-some are indestructible. No matter what the desire is, it always is its accomplishment. A microbe has
-the power to destroy the world (and certainly would if it took an interest in us). If you were to
-dismember its limb, the mutilated part would regrow, etc. So by evoking and becoming obsessed or
-illuminated by these existences, we gain their magical properties, or the knowledge of their
-attainment. This is what already happens (everything happens at all times) though exceedingly
-slowly; in striving for knowledge we repel it, the mind works best on a simple diet.
+無意識とは──あらゆる経験と叡智のエッセンスであり、かつての人間、動物、鳥、植物など、すべての生命の記憶と進化の層を内包するものである。この層を深く掘り下げれば、より古く、より原始的な生命形態へと至る。その最も深い層にあるのは、「全的なシンプルさ（Almighty Simplicity）」だ。そして、もしこれらの層を目覚めさせることに成功すれば、それらの性質（特性）を自分のものとして得ることができ、その達成は、目覚めさせた層に対応したものとなる。これらははるか過去の存在であり、極めて曖昧な暗示によってのみ目覚める。そのためには、思考が非常に静まり、単純化されている必要がある。彼らの叡智を得るとは、彼らの肉体を持つことではない。身体とは「手段」に応じて変化するものであり、たとえば私たちはチーターのような身体を持たずとも、それより速く移動できる。自然を観察すれば、古代の生命体は実に驚くべき特性を持つ。驚異的な適応力、巨大な強靭さ、そして中には不死のような再生能力を持つものさえいる。たとえば微生物は、世界を滅ぼす力すら秘めている（仮に彼らが私たちに興味を持てば、の話だが）。その一部を切り取っても、再生する。つまり──これらの存在を「喚び起こし」、それに「取り憑かれ」あるいは「照らされるilluminated）」ことで、私たちは彼らの魔術的な特性、またはその到達法を手に入れることができる。これはすでに起きていることでもある（すべてのことは常に起きている）。だが、私たちが「知識を得よう」ともがくことで、それを遠ざけてしまっている。知性とは、“シンプルな栄養”のもとでこそ最大限に働くのだ。
 
 **The Key to Prophecy.**
 
