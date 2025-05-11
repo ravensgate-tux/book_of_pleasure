@@ -198,6 +198,11 @@ Spareが提唱する**「シジル」とは、
 
 これらを統合して1つのシジルにする（例示あり）。さらに簡略化した形（図）も考えられる。
 
+
+<div align="center">
+ <img src="sigil_zos-kia.png" width="600">
+</div>
+
 - 27: There are six methods of Sigils employed in this book, each corresponding to
 different strata. The one shown here is illustrative and the fundamental idea of them
 all, from which anyone can evolve his own system. Conditions, etc., or necessity
