@@ -288,15 +288,17 @@ KIAは進化の原因でもなければ、時間にも属さない。意識や�
 
 だがそれは、「再び騙される」ための探求──新たな苦しみをもたらす催眠剤にすぎない。
 
-exhaustion. The terms of the cure are new illusions, greater entanglement, more stagnant
-environment.
-Having studied all ways and means to pleasure and pondered over them well again and again, this
-self-love has been found by me to be the only free, true and full one, nothing more sane, pure, and
-complete. There is no deceit: when by this all experience certainly is known, everything sublimely
-beautiful and exceedingly amiable: where is the necessity of other means? Like the drink to the
-drunkard everything should be sacrificed for it. This Self-love is now declared by me the means of
-evolving millions of ideas for pleasure without love, or its synonyms- self-reproach, sickness, old-age,
-and death. The Symposium of self and love. O! Wise Man, Please Thyself.
+>すべての「癒し」は、結局は新たな幻想であり、さらなるもつれであり、より停滞した環境でしかなかった。
+
+私は、快楽へ至るすべての道と手段を何度も繰り返し考察した。
+
+>そしてたどり着いた結論はただ一つ──自己愛（Self-Love）こそが、真に自由で、誠実で、完全なるものだった。
+
+これ以上に健全で、純粋で、完全なものがあろうか？ここには一切のごまかしがない。
+
+>この愛によって、あらゆる経験は確かな「知」となり、すべてが崇高に美しく、並外れて愛おしいものとなる。それならば、他の手段など必要だろうか？
+
+酔漢にとっての一杯のように、この自己愛のために、すべてを捧げよ。ここに私は宣言する──この自己愛こそが、「愛」を必要としない快楽のために──すなわち「自己否定・病・老い・死」といった影から解放された世界のために──無数の創造的なアイデアを進化させる「方法（Means）」なのだ。これは「自己と愛の饗宴（The Symposium of Self and Love）」である。おお、賢者よ──己を悦ばせよ（Please Thyself）
 
 ---
 
