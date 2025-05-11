@@ -13,6 +13,11 @@ Spareが提唱する「ニーチャー＝ニーチャー（Neither-Neither）」
 📝注釈：Spareにおける「二」＝分割の原理
 Spareは、「法（Law）」や「道徳体系」が常に**“二（Duality）”＝分割によって生まれると説く。この分割がさらなる複雑性や体系（millions）を生む構造は、ちょうど受精卵が成長し、分化し、成人へと至るプロセス**にも似ている。だがSpareにとっては、そうした発展は常に「本来の一（KIA）」からの逸脱であり、分割しないままの“全体性”にこそ自由と至福が宿ると考える。
 
+SpareのKIAは、仏教の「空（くう）」と驚くほどよく似ている。
+どちらも「語れば遠ざかる」原理であり、信念や執着を手放すことでのみ触れられる“無”の中心”である。
+Spareの「not-necessary」という態度は、仏教における「無執着」と響き合い、“観るものとしての意識（KIA）”が、すべての根源であるという構造は、空即是色・色即是空の感覚に近い。
+
+
 ---
 
 🇯🇵 自己愛を語る前に
@@ -153,30 +158,50 @@ KIAは進化の原因でもなければ、時間にも属さない。意識や�
 
 >そこは、痛みも死も入りこめない場所である。
 
+>13：セックスにおいて──いや、あらゆるものにおいて。
 
+>「神」という観念こそが、世界最初の“罪”である。すべての宗教は“悪”である。
 
-- 13: Of Sex, indeed of everything.
+〈自己愛〉とは、自らの中にある「法（Law）」であり、たとえそれを破っても罰されることはない。なぜなら、それは...
 
-The idea of God is the primordial sin, all religions are evil. Self-love is its own law, which may be
-broken with impunity, being the only energy that is not servile, serving its ever-ready purpose. Surely
-it is all that is left us that has no sin and is free? Verily, it is the only thing we dare be conscious of.
-He that truly pleases himself is wihout virtue, and shall satisfy all men. Hate, jealousy, murder, etc.,
-are conditions of love, even as virtue, greed, selfishness, suicide, etc., are conditions or not pleasing
-ones's self. There is no sin more sickening than love, for it is the very essence of covetousness and the
-mother of all sin, hence it has the most devotees. Self-love only is pure and without a congregation.
-He that entirely loves himself induces self-love only. In this he is inexorable, but does not offend like
-other men. He is akin to the great purpose, his actions explained for him, good seen of his evil,
-without knowing, everyone satisfied with his will. Do not Heaven and Earth unite daily in
-spontaneous homage to this will of self-love? No man can show greater self-love, than by giving up
-all he believes. Why do I value this self-love before all else? Is it not because I may be free to believe
-in evil, but have no thought that anything can do me injury? All is self-love, the people of the world,
-if they only knew, are its devotees. My new law is the great clue to life. If the world could
-understand this, the rotten fabric discarded, they would diligently follow the way in their own hearts,
-there would be no further desire for unity. . . . . Try and imagine what that implies.
+>“唯一、従属しないエネルギー”だからだ。
 
-May the idea of God perish and with it women: have they not both made me appear clownish? 
-Let there be no mistake, purity and innocence is simplicity, happiness is wisdom. What is simple has no
-duality.
+>おそらく、それだけが、罪もなく、自由であり続けられる「最後の砦」なのだ。
+
+>真に自らを喜ばせる者には、「徳」はいらない。その人は、他のすべての人々を満足させるだろう。
+
+さらに続けよう──
+
+- 憎しみ、嫉妬、殺人──それらは愛の「側面」であり
+- 徳、貪欲、自己中心、自殺──それらは“自己を喜ばせられない状態”にすぎない
+
+>「愛（Love）」ほど病的な罪はない。なぜならそれは、貪欲（covetousness）の本質であり、すべての罪の母であるからだ。ゆえに、最も多くの信者をもつ。
+
+>だが、〈自己愛〉だけが純粋であり、群れを持たない。自分自身を徹底的に愛する者は、他者にも自己愛を引き起こさせる。その愛は強く、しかし他人を不快にさせることはない。
+
+>彼の行いは、「大いなる目的（Great Purpose）」と共鳴しており、彼自身が説明しなくても、その行動が意味を持つ。善なるものは、彼の“悪”の中から現れる。知らずとも、彼の意志が人々を満たしていく。
+
+>天と地さえも、日々〈自己愛の意志〉に自発的な敬意を捧げているのではないか？
+
+**❝最大の自己愛とは──信じていたすべてを手放すことである。❞**
+
+>なぜ、私がこの〈自己愛〉をすべてに優先させるのか？それは、“悪を信じる自由”すら持ちながら、何ものにも害されるとは思わないからだ。
+
+>世界の人々は、気づいていないだけで、すべてが〈自己愛〉の信者である。
+
+>この「新たな法（New Law）」こそが、生の鍵（clue to life）なのだ。
+
+もし世界がこれを理解し、その腐敗した構造を捨て去るなら──彼らは熱心に“自分自身の心の道”を歩み始めるだろう。
+
+>そうなれば、もはや「統一」など望まなくなる。…想像してみてほしい。それが意味するものを。
+
+**🔥 過激な宣言（Spare節）「神の観念」が滅びることを願う──そして“女”と共に。**
+
+彼ら（神と女性）は、私を「道化」のように見せてきたではないか？
+
+>誤解無きように。「純粋」と「無垢」とは、すなわち“単純さ（simplicity）”に他ならない。
+
+>幸福とは“知恵”そのものであり、単純なものに“二元性”は存在しない。
 
 **The Doctrine of Eternal Self-Love.**
 
