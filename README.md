@@ -19,10 +19,6 @@
  <img src="death_posture.jpg" width="200">
 </div>
 
-<div align="center">
-<b>ZOSの手✋、KIAの目👁。スペアは肉体と意識を一つの芸術行為に還元した。</b>
-</div>
-
 ---
 
 
