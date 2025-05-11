@@ -10,21 +10,11 @@
 
 残りの信念体系は、伝統的な道徳教義との葛藤に由来するものであり、それはすでに「体制の一部」となって反応や行動のタイミングを管理しようとしている。もともとは、「当時の都合」によって便宜的に定義された〈善〉と〈悪〉の観念だった。その目的は、欲望の「抑圧」と「実行」との間で恣意的に折り合いをつけることで快楽を最大化しようとするものであり、同時にその欲望を恐れている。これらは「神聖な起源」を持つかのように見せかけられ、人々に受け入れられてきた。この道徳コードは、「従順には報酬を、違反には罰を」という原則を基盤としており、それが「この世界」と「来世」の両方に当てはまるとされている。だが実際には、これは「概念形成能力（コンセプティヴ・ファカルティ）」を誇張し演出した茶番劇であり、決して完璧でも単純でもない。変化の余地を残すことができないため、この道徳体系は進化から切り離され、機能を失っていく。そしてその存続と共感を得るために、矛盾や複雑化という形で関係性をでっち上げざるを得なくなるのだ。
 
-Transgressing its commandments, dishonesty
-shows us its iniquity, for our justification; or simultaneously we create an excuse or reason for the sin
-by a distortion of the moral code, that allows some incongruity. (Usually retaing a few unforgiveable
-sins- and an unwritten law.) This negative confession is a feigned rationalism that allows adventitious
-excuses . . . . a process of self-deception to satisfy and summarily persuade yourself of righteousness.
-What one among us has any excuse but self-love? We do not create or confess a morality that is
-convenient, that lends itself to growth, and remains simple, that allows transgression without excuse
-or punishment. It would be wise and commonsense to do so, whatever the state of affairs in your
-mind. Nature eventually denies that which it affirms: Through permanent association with the same
-moral code we help desire to transgress. Desire of those things denied, the more you restrict the more
-you sin, but desire equally desires preservation of moral instinct, so desire is its own conflict (and
-weakly enough). Have no fear, the Bull of earth has long had nothing to do with your unclean
-conscience, your stagnant ideas of morality. The microbe alone would seem without fear!
+人は、戒律（コマンドメント）を破ったとき、不誠実さを通じてその不正義（イニクィティ）を自らに示し、正当化しようとする。あるいは同時に、罪を犯す理由や言い訳を──その道徳コードを歪めることによって創り出す。そこには何らかの矛盾が生まれる。（通常は、「赦されざる罪」を数個だけ残し、“書かれていない法”を持ち出しておくのだ。）この“否定的な告白”は、表向きには理性的なふりをした自己欺瞞であり、突発的な言い訳を作るプロセスでもある。──それは、自分自身を正しいと納得させるための方便にすぎない。だが、問いたい。「自己愛（Self-Love）」以外に、私たちにどんな言い訳があるだろう？私たちは、都合のよい道徳──すなわち成長を促し、単純さを保ち、「破ることができるが、罰や言い訳を必要としない」ような道徳──を創りもしなければ、認めようともしない。だが、それを持つことこそが賢明で、常識的な態度なのだ。──たとえ、あなたの心の状態がどうであろうとも。自然は、やがて自ら肯定したものを否定する。同じ道徳コードにずっと縛られ続けることで、私たちは欲望を破滅（トランスグレッション）へと向かわせてしまう。禁じられたものを欲する──それが欲望というものだ。
 
-- 11: The elemental morality or fear of displeasing.
+抑圧すればするほど、罪は増す。しかし同時に、欲望そのものが“道徳本能の保持”を求めてもいる。つまり──欲望とは、その内部に矛盾を抱えたものなのだ。（そして、その矛盾は意外と弱々しい。）恐れることはない。地の牡牛（バアル、物質の象徴）は、すでにあなたの“汚れた良心”や、停滞した道徳観とは何の関わりも持っていない。いまや恐れるものがあるとすれば、唯一、微生物microbe）だけかもしれない。
+
+>- 11: 基本的な道徳観、あるいは“不快を与えることへの恐れ”。
 
 **The Complexity of the Belief (Know Thyself).**
 
