@@ -4,7 +4,7 @@
 
 ---
 
-🇯🇵 The Cloudy Enemies Born of Stagnant Self-Hypnotism.
+🇯🇵 停滞した自己催眠が生み出す、濁った敵（神性についての独白）
 
 Natural belief is the intuition that compels belief through that which is experienced reacting, and
 dominating in turns; everything has to associate itself through its definite emotion, stimulated by
