@@ -16,7 +16,7 @@
 
 
 <div align="center">
- <img src="book_pic_2.jpg" width="400">
+ <img src="spare_book_1.png" width="400">
 </div>
 
 <div align="center">
