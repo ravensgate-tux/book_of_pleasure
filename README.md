@@ -16,11 +16,11 @@
 
 
 <div align="center">
- <img src="spare_book_1.png" width="400">
+ <img src="spare_book_2.png" width="400">
 </div>
 
 <div align="center">
-画像出典：『The Book of Pleasure』Secret Fire Publishing版 表紙より引用
+画像出典：Portrait of the Artist by Austin Osman Spare, 1907. Source: WikiArt. Public Domain.
 </div>
 
 ---
