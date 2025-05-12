@@ -23,6 +23,7 @@
 画像出典：Portrait of the Artist by Austin Osman Spare, 1907. Source: WikiArt. Public Domain..
 </div>
 <br>
+
 ---
 
 ## 🗂 目次
