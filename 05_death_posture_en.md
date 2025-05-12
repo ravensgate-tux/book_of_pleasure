@@ -15,7 +15,7 @@ recognize all things, resist nothing; then there is no conflict, incompatibility
 
 Man implies Woman, I transcend these by the Hermaphrodite, this again implies a Eunuch6; all these
 conditions I transcend by a "Neither" principle, yet although a "Neither" is vague, the fact of
-conceiving it proves its palpability, and again implies a different "Neither."
+conceiving it proves its palpability, and again implies a different "Neither."7
 
 But the "Neither-Neither" principle of those two, is the state where the mind has passed beyond
 conception, it cannot be balanced, since it implies only itself. The "I" principle has reached the "Does
