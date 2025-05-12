@@ -31,7 +31,7 @@
 
 - [02 宗教と教義──快楽・自由・力への道具として](02_on_religion_and_faith.md)
 
-- [03 宗教を食らう者](03_self_love_and_sigils.md)
+- [03 宗教を消費するもの](03_self_love_and_sigils.md)
 
 - [04 神性についての内なる問い](04_kia_and_neither_neither.md)
 
