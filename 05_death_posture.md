@@ -61,7 +61,7 @@
 
 それがKia──至福そのもの。
 
-これこそが、新たな協定（New Agreement）によって成立する自己満足の科学（Glorious Science）であり、自己認識を通じた自己愛の術（Art of Self-love）であり、非抵抗によって到達するエクスタシーの心理学（Psychology of Ecstasy）なのだ。
+これこそが、新たな協定（New Agreement）によって成立する自己満足の科学（Glorious Science）であり、自己認識を通じた自己愛の術（Art of Self-love）であり、非抵抗によって到達するエクスタシーの心理学（Psychology of Ecstasy）なのである。
 
 >**6:** 性なき者（Sex-less）
 ──「去勢者（Eunuch）」を指す。性の二元性を欠いた存在として、象徴的に「男性／女性」の対立から自由である状態を表す。
