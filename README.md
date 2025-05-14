@@ -64,7 +64,7 @@ Austin Osman Spareの著作は、逆説・省略・文法逸脱・造語を多�
 ---
 ## 🗃 関連資料
 
-同じくオースティン・オズマン・スペアによる晩年の自動筆記文書『ゾスの呪詛――偽善者たちへの説教 (Anathema of Zos)』の翻訳Zineも公開中。
+同じくオースティン・オスマン・スペアによる晩年の自動筆記文書『ゾスの呪詛――偽善者たちへの説教 (Anathema of Zos)』の翻訳Zineも公開中。
 
 👉 [『ゾスの呪詛――偽善者たちへの説教 (Anathema of Zos)』を読む](https://github.com/ravensgate-tux/Anathema_of_Zos/blob/main/README.md)
 
