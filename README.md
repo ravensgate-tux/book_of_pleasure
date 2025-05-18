@@ -70,13 +70,13 @@ Austin Osman Spareの著作は、逆説・省略・文法逸脱・造語を多�
 👉 [『ゾスの呪詛――偽善者たちへの説教 (Anathema of Zos)』を読む](https://github.com/ravensgate-tux/Anathema_of_Zos/blob/main/README.md)
 <br>
 <br>
-👉[『半獣神たちの書（英文）』](AustinOsmanSpare-ABookOfSatyrs-ocr.pdf)　👉[テキスト部分の要約](satyrs_summary.md)<br>
+👉[『半獣神たちの書（🇬🇧英文）』](AustinOsmanSpare-ABookOfSatyrs-ocr.pdf)　🇯🇵[テキスト部分の要約](satyrs_summary.md)<br>
 <br>
 📚『半獣神たちの書（A Book of Satyrs）』について<br>
 本書は1907年に刊行されたオースティン・オスマン・スペアによる初期の画集であり、彼の特異な美学と魔術的想像力を色濃く映し出す図版が多数収録されている。**スペア自身による文章はもともと含まれていない**が、詩人であり私家版出版社「ペア・ツリー・プレス（Pear Tree Press）」の主宰でもあったジェームズ・ガスリー（James Guthrie）による序文が添えられており、当時の芸術的・社会的背景のもとにスペアの作品を位置づけている。
 この序文は、スペアの絵画が持つサタイア（風刺）性や想像力、そして「予測不能な意図」に対して独自の評価を与えており、のちの『快楽の書』や『ゾスの呪詛』へと展開する思想の原型を、視覚芸術の面から捉える一助となるだろう。
 <br><br>
-👉[『地上の地獄（英文）』](37355088-Austin-Osman-Spare-Earth-Inferno-1905-ocr.pdf)　👉[テキスト部分の要約](earth_inferno_summary.md)
+👉[『地上の地獄（🇬🇧英文）』](37355088-Austin-Osman-Spare-Earth-Inferno-1905-ocr.pdf)　🇯🇵[テキスト部分の要約](earth_inferno_summary.md)
 <br>
 <br>
 📚『地上の地獄（Earth Inferno, 1905）』について<br>
