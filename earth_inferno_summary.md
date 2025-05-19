@@ -22,7 +22,7 @@
 - 自我崩壊を通じた再生と進化
 
 ### 地上の地獄とZOD-KIA 
-- ここでは、ZOS-KIAではなくZOD-KIAと表現されている。複数箇所に出てくるのでタイプミス等ではない
+- ここでは、ZOS-KIAではなくZOD-KIAと表現されている
 - 「ZOD-KIA」が死と信仰を支配する世界を暗示
 - ただ、一箇所次の文でZOS-KIAが出てくる
 - Oh! come with me, the KIA and the ZOS, to witness this extravagance.
