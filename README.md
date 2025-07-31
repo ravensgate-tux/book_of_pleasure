@@ -2,6 +2,8 @@
 
 本Zineは、オースティン・オスマン・スペア（Austin Osman Spare, 1886–1956）の代表作『The Book of Pleasure（Self-Love）』の全文翻訳および注釈を収録している。
 
+##　🚧🚧🚧　読みやすくするための改訂作業　🚧🚧🚧
+
 <div align="right">
 
 **by 知られざる呪術師（*Le Sorcier Inconnu*）**  
