@@ -75,7 +75,7 @@ Austin Osman Spareの著作は、逆説・省略・文法逸脱・造語を多�
 その他のオースティン・オスマン・スペアによる文書の翻訳Zineも公開中。
 
 - 🎨 [『地上の地獄(1905年)』翻訳Zine](https://github.com/ravensgate-tux/earth_inferno/blob/main/README.md)
-- 🎨 [『半獣神たちの書 (1909年)』翻訳Zine](https://github.com/ravensgate-tux/book_satyrs/blob/main/README.md)
+- 🎨 [『半獣神たちの書 (1907年)』翻訳Zine](https://github.com/ravensgate-tux/book_satyrs/blob/main/README.md)
 - 🎨 [『快楽の書 (1913年)』の翻訳＋注釈Zine──ZOS/KIAと魔術の原点](https://github.com/ravensgate-tux/book_of_pleasure/blob/main/README.md)
 - 🎨 [『生命の焦点(1921年)』翻訳Zine](https://github.com/ravensgate-tux/focus-of-life/blob/main/README.md)
 - 🎨 [『ゾスの呪詛 (1927年)――偽善者たちへの説教』翻訳Zine](https://github.com/ravensgate-tux/Anathema_of_Zos/blob/main/README.md)
