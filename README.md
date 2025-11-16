@@ -16,7 +16,7 @@
 🎉 スペア本のお知らせ
 
 GitHub で公開していた『快楽の書』訳＋注釈、
-ついに書籍版として世に出ました。
+書籍版として世に出ました。
 
 GitHub 版：
 研究者・魔術師向けの “原文準拠アーカイブ”
@@ -37,18 +37,6 @@ GitHub 版：
 </div>
 <br>
 
-
----
-
-
-<div align="center">
- <img src="spare_book_2.png" width="400">
-</div>
-<br>
-<div align="center">
-画像出典：Portrait of the Artist by Austin Osman Spare, 1907. Source: WikiArt. Public Domain..
-</div>
-<br>
 
 ---
 
