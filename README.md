@@ -29,7 +29,7 @@ GitHub 版：
 （※ディスコーディアン精神により、知識のオープンアクセスは維持されます）
 
 <div align="center">
- <img src="amazon_book_01.jpg" width="400">
+ <img src="amazon_book_01.jpg" width="200">
 </div>
 <br>
 <div align="center">
